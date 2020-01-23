@@ -30,7 +30,7 @@
 
 ***
 
-###Simultaneity
+### Simultaneity
 
 * *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
@@ -66,7 +66,7 @@
 
 ***
 
-###Entanglement
+### Entanglement
 
 * *"The infinitely far-away is not only near, but it is infinitely near."* - [Edward Conze, Buddhist linguist](https://imgur.com/jlvewBA)
 
@@ -96,7 +96,7 @@
 
 ***
 
-###Illusory Separation 
+### Illusory Separation 
 
 * *"Devoid of space / Is the mind of grace."* - [Jack Kerouac](https://imgur.com/PuClHTX)
 
@@ -142,7 +142,7 @@
 
 ***
 
-###Selflessness
+### Selflessness
 
 * *“Events happen, deeds are done, but there is no individual doer thereof.”* - Buddha
 
@@ -168,7 +168,7 @@
 
 ***
 
-###Unity
+### Unity
 
 * *“There is only one truth, only men describe it in different ways.”* - [Rig-Veda](https://imgur.com/OED2lmd)
 
@@ -198,7 +198,7 @@
 
 ***
 
-###Coalescence
+### Coalescence
 
 * *"Things of nature tend by their very nature to coalesce with each other...* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm)
 
@@ -250,7 +250,7 @@
 
 ***
 
-###Oneness
+### Oneness
 
 * "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
 
@@ -298,7 +298,7 @@
 
 ***
 
-###Collective Unconscious
+### Collective Unconscious
 
 * *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
 
@@ -333,7 +333,7 @@ AD.
 
 ***
 
-###Intellectual Cosmos
+### Intellectual Cosmos
 
 * *"Consciousness is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
 
@@ -408,7 +408,7 @@ AD.
 
 ***
 
-###Changelessness 
+### Changelessness 
 
 * *"The only secret people keep is immortality."* - [Emily Dickinson](https://www.goodreads.com/quotes/204466)
 
