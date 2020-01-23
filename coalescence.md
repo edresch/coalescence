@@ -178,6 +178,54 @@
 
 ***
 
+### Oneness
+
+* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
+
+* "Nature by it's very definition is a singulare tantum. I should say: the over-all number of minds is just one." - [Erwin Schrödinger, Nobel Prize winning physicist](https://i.imgur.com/ChHEYce.png)
+
+* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
+
+* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism everything is derived from ***[The One.](https://w.wiki/Cwn)***
+
+* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
+
+* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind and intellect.
+
+* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
+
+* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - Plotinus, Enneads, 204-270 AD.
+
+* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize Winning physicist](https://w.wiki/Czt)
+
+* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
+
+* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
+
+* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
+
+* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
+
+* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
+
+* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
+
+* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
+
+* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
+
+* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
+
+* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - Plotinus, Enneads, 204-270 AD.
+
+* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
+
+* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
+
+* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
+
+***
+
 ### Illusory Separation 
 
 * *"Devoid of space / Is the mind of grace."* - [Jack Kerouac](https://imgur.com/PuClHTX)
@@ -247,89 +295,6 @@
 * "We do not need a new religion or a new bible. We need a new experience--a new feeling of what it to be "I." The lowdown (which is, of course, the secret and profound view) on life is that ***our normal sensation of self is a hoax*** or, at best, a temporary role that we are playing, or have been conned into playing. If you know that "I", in the sense of the person, the front, the ego, it really doesn't exist, then it won't go to your head too badly." - [Alan Watts](https://genius.com/Alan-watts-the-book-chapter-1-lyrics)
 
 * "Establish yourself firmly in the awareness of 'I AM'. This is the beginning, and also the end of all endeavour. Give up all questions except one: ‘Who am I?’ After all, the only fact you are sure of is that you are. The ‘I am’ is certain. The ‘I am this’ is not. ***Nothing, concrete or abstract, which you perceive can be you.*** The very act of perceiving shows that you are not what you perceive. Once you are convinced that you cannot say truthfully about your self anything except ‘I am’, and ***that nothing that can be pointed at, can be your self***, the need for the ‘I am’ is over -- you are no longer intent on verbalising what you are. All you need is to get rid of the tendency to define your self." - [Sri Nisargadatta Maharaj](https://www.nonduality.com/beyond.htm)
-
-***
-
-### Oneness
-
-* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
-
-* "Nature by it's very definition is a singulare tantum. I should say: the over-all number of minds is just one." - [Erwin Schrödinger, Nobel Prize winning physicist](https://i.imgur.com/ChHEYce.png)
-
-* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
-
-* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism everything is derived from ***[The One.](https://w.wiki/Cwn)***
-
-* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
-
-* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind and intellect.
-
-* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
-
-* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - Plotinus, Enneads, 204-270 AD.
-
-* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize Winning physicist](https://w.wiki/Czt)
-
-* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
-
-* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
-
-* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
-
-* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
-
-* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
-
-* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
-
-* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
-
-* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
-
-* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
-
-* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - Plotinus, Enneads, 204-270 AD.
-
-* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
-
-* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
-
-* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
-
-***
-
-### Collective Unconscious
-
-* *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
-
-* "I believe that [consciousness](https://imgur.com/JxX7RFX) is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
-
-* “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
-
-* [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
-
-* "No self is of itself alone. It has a long chain of intellectual ancestors. The "I" is chained to ancestry by many factors … This is not mere allegory, but an eternal memory." - [Erwin Schrödinger, Nobel Prize Winning physicist](https://w.wiki/CmV)
-
-* “People say I have created things. I have never created anything. I get impressions from the Universe at large and work them out, but I am only a plate on a record or a receiving apparatus—what you will. Thoughts are really impressions that we get from outside.” - [Thomas Edison](https://imgur.com/C9YzCiK)
-
-* "All knowledge that the world has ever received comes from the mind; the infinite library of the universe is in our own mind." - [Swami Vivekananda](https://w.wiki/CwK)
-
-* "In every entity the essential nature is the governing principle... This Soul, imparts the pattern of the Kosmos, the Ideas for which it has itself received from the Intellectual-Principle as the soul or mind of the craftsman draws upon his craft for the plan of his work." - Plotinus, Enneads, 204-270 
-AD.
-
-* “There is one mind common to all individual men. What Plato has thought, he may think; what a saint has felt, he may feel; what at any time has befallen any man, he can understand. Who hath access to this universal mind is a party to all that is or can be done.” - [Ralph Waldo Emerson](https://imgur.com/0LmC7Zw)
-
-* “Like a hologram, each region of space-time contains information about every other point in space-time. This information is readily available to our awareness. In the holographic universe … there is a unity of consciousness—***a ‘greater collective mind’***—with no boundaries of space or time.” - [Russell Targ, physicist](https://imgur.com/TqE2Z5r)
-
-* “In any great discovery we find the often disturbing and happy experience: ‘It is not I; I have not done this.’ Still, in a certain way it is I—yet not the ego … but … a more comprehensive self." - [Baron Carl Friedrich von Weizsäcker, physicist/philosopher](https://imgur.com/VeXdOXN)
-
-* ***"I think that there may well be a flow of pattern which crosses species lines and allows organisms to borrow each other’s ideas…*** As a biologist, I am aware at times—especially when steeped in some natural cycle—of a kind of consciousness that is timeless, unlimited by space or by the confines of my own identity. I find myself, at these times, ***with knowledge that comes directly from being part of something very much larger, a sort of global ecology of mind.*** *And the experience of it is literally wonderful."* - [Lyall Watson, biologist](https://imgur.com/FtGIS3f)
-
-* “I'm not entirely closed to the possibility that there is some link to a universal knowledge.…It seems like savants, especially autistic savants, know so many things they haven’t learned, and it’s almost as if they tapped into a ***universal knowledge.”*** - [Dr. Darold Treffert, psychiatry professor](https://www.eldontaylor.com/provocativeenlightenment/2017-0810-islands-of-genius-with-darold-a-treffert-m-d/)
-
-* In 2016 the CIA [released results](https://www.cia.gov/library/readingroom/docs/CIA-RDP79-00999A000300030027-0.pdf) of studies conducted on Israeli psychic Uri Geller. ***Geller successfully described and [drew pictures](https://imgur.com/kXcSWAC) that were outside of a shielded room.*** It's stated - *"As a result of Gellers success in this experimental period, we consider that he has demonstrated his perceptual ability in a convincing and unambiguous manner."*
-
-* "The particular holographic type of consciousness, situated in the particular event horizons as a sort of bordering memory domains, can effectively function as a nested information workspace, that in humans is instrumental in constructing a mental model of reality for internal use in each individual, ***thus functioning as a global reference system. We propose this can be readily explained by a holographic memory space that contains the total history and future probability states of the particular cell..."*** - [Dirk K.F. Meijer, Conscious Universe](https://www.researchgate.net/publication/320267484)
 
 ***
 
@@ -405,6 +370,41 @@ AD.
 * "The idea that a consciousness can exist and make memories independent of the brain … is a startling finding." - Dr. Allan Hamilton, Harvard Ph.D (Commenting on a patient’s detailed memories that occurred when they had *[no brain activity.](https://youtu.be/rlfYnuNR3lI?t=111)*)
 
 * Neuropsychologist Karl Lashley wanted understand where memories are stored in the brain. To do this, he trained rats to do tasks for food. Once they learned the task, he systematically destroyed one part of their brain at a time. Miraculously, ***[the rats could still perform the tasks](https://i.imgur.com/U5Ophyh.png)*** regardless of which part of the brain was destroyed. This test was also successful with both [*monkeys*](https://i.imgur.com/KS61wjr.png), [*salamanders*](http://www.instinct.org/texts/shufflebrain/shufflebrain-book05.html) and has been naturally [*observed in humans.*](https://imgur.com/MRLQFEL)
+
+***
+
+### Collective Unconscious
+
+* *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
+
+* "I believe that [consciousness](https://imgur.com/JxX7RFX) is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
+
+* “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
+
+* [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
+
+* "No self is of itself alone. It has a long chain of intellectual ancestors. The "I" is chained to ancestry by many factors … This is not mere allegory, but an eternal memory." - [Erwin Schrödinger, Nobel Prize Winning physicist](https://w.wiki/CmV)
+
+* “People say I have created things. I have never created anything. I get impressions from the Universe at large and work them out, but I am only a plate on a record or a receiving apparatus—what you will. Thoughts are really impressions that we get from outside.” - [Thomas Edison](https://imgur.com/C9YzCiK)
+
+* "All knowledge that the world has ever received comes from the mind; the infinite library of the universe is in our own mind." - [Swami Vivekananda](https://w.wiki/CwK)
+
+* "In every entity the essential nature is the governing principle... This Soul, imparts the pattern of the Kosmos, the Ideas for which it has itself received from the Intellectual-Principle as the soul or mind of the craftsman draws upon his craft for the plan of his work." - Plotinus, Enneads, 204-270 
+AD.
+
+* “There is one mind common to all individual men. What Plato has thought, he may think; what a saint has felt, he may feel; what at any time has befallen any man, he can understand. Who hath access to this universal mind is a party to all that is or can be done.” - [Ralph Waldo Emerson](https://imgur.com/0LmC7Zw)
+
+* “Like a hologram, each region of space-time contains information about every other point in space-time. This information is readily available to our awareness. In the holographic universe … there is a unity of consciousness—***a ‘greater collective mind’***—with no boundaries of space or time.” - [Russell Targ, physicist](https://imgur.com/TqE2Z5r)
+
+* “In any great discovery we find the often disturbing and happy experience: ‘It is not I; I have not done this.’ Still, in a certain way it is I—yet not the ego … but … a more comprehensive self." - [Baron Carl Friedrich von Weizsäcker, physicist/philosopher](https://imgur.com/VeXdOXN)
+
+* ***"I think that there may well be a flow of pattern which crosses species lines and allows organisms to borrow each other’s ideas…*** As a biologist, I am aware at times—especially when steeped in some natural cycle—of a kind of consciousness that is timeless, unlimited by space or by the confines of my own identity. I find myself, at these times, ***with knowledge that comes directly from being part of something very much larger, a sort of global ecology of mind.*** *And the experience of it is literally wonderful."* - [Lyall Watson, biologist](https://imgur.com/FtGIS3f)
+
+* “I'm not entirely closed to the possibility that there is some link to a universal knowledge.…It seems like savants, especially autistic savants, know so many things they haven’t learned, and it’s almost as if they tapped into a ***universal knowledge.”*** - [Dr. Darold Treffert, psychiatry professor](https://www.eldontaylor.com/provocativeenlightenment/2017-0810-islands-of-genius-with-darold-a-treffert-m-d/)
+
+* In 2016 the CIA [released results](https://www.cia.gov/library/readingroom/docs/CIA-RDP79-00999A000300030027-0.pdf) of studies conducted on Israeli psychic Uri Geller. ***Geller successfully described and [drew pictures](https://imgur.com/kXcSWAC) that were outside of a shielded room.*** It's stated - *"As a result of Gellers success in this experimental period, we consider that he has demonstrated his perceptual ability in a convincing and unambiguous manner."*
+
+* "The particular holographic type of consciousness, situated in the particular event horizons as a sort of bordering memory domains, can effectively function as a nested information workspace, that in humans is instrumental in constructing a mental model of reality for internal use in each individual, ***thus functioning as a global reference system. We propose this can be readily explained by a holographic memory space that contains the total history and future probability states of the particular cell..."*** - [Dirk K.F. Meijer, Conscious Universe](https://www.researchgate.net/publication/320267484)
 
 ***
 
