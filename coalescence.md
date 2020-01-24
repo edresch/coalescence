@@ -98,7 +98,7 @@
 
 ### Coalescence
 
-* *"Things of nature tend by their very nature to coalesce with each other...* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm)
+* *"Things of nature tend by their very nature to coalesce with each other..."* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm)
 
 * [Huayan](https://w.wiki/DAj) is a tradition of Mahayana Buddhist philosophy that developed the doctrine of [*"coalescence."*](https://www.merriam-webster.com/dictionary/coalesce) Huayan holds that all phenomena are deeply interconnected.
 
