@@ -36,7 +36,7 @@
 
 * [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
 
-* "According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. This eternal moment is known as the [Ain Soph Aur](http://www.webofqabalah.com/id28.html)." - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
+* "According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
 
 * “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
 
