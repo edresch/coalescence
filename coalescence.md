@@ -108,8 +108,6 @@
 
 * “That Universal Being, that contains all, and which is all, put into motion the Soul and the World, all that nature comprises. In the manifold  ***unity of universal life,*** the innumerable individualities distinguished by their variations, are, nevertheless, united in such a manner that the whole is one, and that ***everything proceeds from Unity.”*** - [Hermes, Asclepios](https://www.sacred-texts.com/eso/vow/vow09.htm) 
 
-* "That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define the infinity as unity. ***This unity is all that there is."*** - [Carla Rueckert, Law of One](https://www.llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_1.pdf) 
-
 * "The Soul contains all things but holds them all in an ***unextended unity.*** Differences unfold themselves, contraries are produced, but all is drawn into one organized system by the unity at the source. When you know that you have become this perfect work, when you are self-gathered in the purity of your being, ***nothing now remaining can shatter that inner unity...*** From unity they have arisen, and towards unity, they strive. ***Unity is thus identical with Goodness;*** for no being ever came into existence without possessing, from that very moment, an irresistible tendency towards unity. - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "Behold, how good and pleasant it is when brothers ***dwell in unity***!" - [Psalm 133:1](https://www.biblegateway.com/passage/?search=Psalm+133%3A1&version=KJV) 
@@ -117,6 +115,8 @@
 * "The definition of Kabbalah is receptiveness. Having *seamless unity* from self to the whole. Like a hologram, everything is continuously interconnected as ***one integral unity."*** - [Rabbi Simon Jacobson.](https://www.youtube.com/watch?v=-myHhrUTOIo) **["holo"](https://w.wiki/Ctc)** comes from Ancient Greek "hólos" meaning (***“whole.”***)
 
 * "Finally, all of you, ***have unity of mind***, sympathy, brotherly love, a tender heart, and a humble mind." - [1 Peter 3:8](https://www.biblegateway.com/passage/?search=1+Peter+3%3A8&version=KJV)
+
+* "That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define the infinity as unity. ***This unity is all that there is."*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
 
 * “Above all other relationships he recognizes ***the universal brotherhood of every living thing.*** The symbol of the clasped hands, explained in the Lodge, reflects his attitude towards all the world, for he is the comrade of all created things. - [The Lost Keys of Freemasonry](https://en.wikisource.org/wiki/The_Lost_Keys_of_Freemasonry/Introduction)
 
