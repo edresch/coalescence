@@ -96,6 +96,36 @@
 
 ***
 
+### Unity
+
+* *“There is only one truth, only men describe it in different ways.”* - [Rig-Veda](https://imgur.com/OED2lmd)
+
+* "No one can study ancient philosophies seriously without perceiving the striking similitude of conception between all. The result of no mere coincidence, but of a *concurrent design:* and that there was, during the youth of mankind, ***one language, one knowledge, one universal religion, when there were no churches, no creeds or sects..."*** [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-2-03.htm)
+
+* "Every priest of an ancient creed was one of the Initiates, that is to say, ***he knew perfectly well that only one religion existed***, and that the cultus merely served to translate this religion to the different nations according to their particular temperaments. To anyone possessing the key, ***all these Bibles reveal the same doctrine***; but this key, which can open Esoterism, is lost by the sectarians of our Western creeds. Yet every cultus has its tradition, its book, its Bible, which teach those who know how to read them ***the unity of all creeds, in spite of the differences existing in the ritual of various countries."*** - [The Tarot of the Bohemians](http://www.sacred-texts.com/tarot/tob/index.htm)
+
+* "The [Bahá'í Faith](https://en.wikipedia.org/wiki/Bah%C3%A1%27%C3%AD_Faith_and_the_unity_of_religion) states that there is a ***fundamental unity*** in many of the world's religions. It is one of the core teachings, alongside the unity of God, and the unity of humanity."
+
+* “That Universal Being, that contains all, and which is all, put into motion the Soul and the World, all that nature comprises. In the manifold  ***unity of universal life,*** the innumerable individualities distinguished by their variations, are, nevertheless, united in such a manner that the whole is one, and that ***everything proceeds from Unity.”*** - [Hermes, Asclepios](https://www.sacred-texts.com/eso/vow/vow09.htm) 
+
+* "That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define the infinity as unity. ***This unity is all that there is."*** - [Carla Rueckert, Law of One](https://www.llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_1.pdf) 
+
+* "The Soul contains all things but holds them all in an ***unextended unity.*** Differences unfold themselves, contraries are produced, but all is drawn into one organized system by the unity at the source. When you know that you have become this perfect work, when you are self-gathered in the purity of your being, ***nothing now remaining can shatter that inner unity...*** From unity they have arisen, and towards unity, they strive. ***Unity is thus identical with Goodness;*** for no being ever came into existence without possessing, from that very moment, an irresistible tendency towards unity. - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* "Behold, how good and pleasant it is when brothers ***dwell in unity***!" - [Psalm 133:1](https://www.biblegateway.com/passage/?search=Psalm+133%3A1&version=KJV) 
+
+* "The definition of Kabbalah is receptiveness. Having *seamless unity* from self to the whole. Like a hologram, everything is continuously interconnected as ***one integral unity."*** - [Rabbi Simon Jacobson.](https://www.youtube.com/watch?v=-myHhrUTOIo) **["holo"](https://w.wiki/Ctc)** comes from Ancient Greek "hólos" meaning (***“whole.”***)
+
+* "Finally, all of you, ***have unity of mind***, sympathy, brotherly love, a tender heart, and a humble mind." - [1 Peter 3:8](https://www.biblegateway.com/passage/?search=1+Peter+3%3A8&version=KJV)
+
+* “Above all other relationships he recognizes ***the universal brotherhood of every living thing.*** The symbol of the clasped hands, explained in the Lodge, reflects his attitude towards all the world, for he is the comrade of all created things. - [The Lost Keys of Freemasonry](https://en.wikisource.org/wiki/The_Lost_Keys_of_Freemasonry/Introduction)
+
+* "The first peace, which is most important, is that which comes within the souls of men when they realize their relationship, ***their oneness, with the universe*** and all its Powers, and when they realize that at the center of the universe dwells Wakan-Tanka, and that this center is really everywhere, it is within each of us. This is the real Peace, and the others are but reflections of this. The second peace is that which is made between two individuals, and the third is that which is made between two nations. But above all you should understand that there can never be peace between nations until there is first known that true peace which, as I have often said, is within the souls of men." - [Hehaka Sapa, Wichasha Wakan](https://en.wikiquote.org/wiki/Black_Elk)
+
+* “And all the books you've read have been read by other people. And all the songs you've loved have been heard by other people. And that girl that's pretty to you is pretty to other people. And that if you looked at these facts when you were happy, ***you would feel great because you are describing 'unity***.” - [Stephen Chbosky](https://www.goodreads.com/quotes/9625-and-all-the-books-you-ve-read-have-been-read-by)
+
+***
+
 ### Coalescence
 
 * *"Things of nature tend by their very nature to coalesce with each other...* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm)
@@ -147,36 +177,6 @@
 * "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - Plotinus, Enneads, 204-270 AD.
 
 * "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
-
-***
-
-### Unity
-
-* *“There is only one truth, only men describe it in different ways.”* - [Rig-Veda](https://imgur.com/OED2lmd)
-
-* "No one can study ancient philosophies seriously without perceiving the striking similitude of conception between all. The result of no mere coincidence, but of a *concurrent design:* and that there was, during the youth of mankind, ***one language, one knowledge, one universal religion, when there were no churches, no creeds or sects..."*** [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-2-03.htm)
-
-* "Every priest of an ancient creed was one of the Initiates, that is to say, ***he knew perfectly well that only one religion existed***, and that the cultus merely served to translate this religion to the different nations according to their particular temperaments. To anyone possessing the key, ***all these Bibles reveal the same doctrine***; but this key, which can open Esoterism, is lost by the sectarians of our Western creeds. Yet every cultus has its tradition, its book, its Bible, which teach those who know how to read them ***the unity of all creeds, in spite of the differences existing in the ritual of various countries."*** - [The Tarot of the Bohemians](http://www.sacred-texts.com/tarot/tob/index.htm)
-
-* "The [Bahá'í Faith](https://en.wikipedia.org/wiki/Bah%C3%A1%27%C3%AD_Faith_and_the_unity_of_religion) states that there is a ***fundamental unity*** in many of the world's religions. It is one of the core teachings, alongside the unity of God, and the unity of humanity."
-
-* “That Universal Being, that contains all, and which is all, put into motion the Soul and the World, all that nature comprises. In the manifold  ***unity of universal life,*** the innumerable individualities distinguished by their variations, are, nevertheless, united in such a manner that the whole is one, and that ***everything proceeds from Unity.”*** - [Hermes, Asclepios](https://www.sacred-texts.com/eso/vow/vow09.htm) 
-
-* "That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define the infinity as unity. ***This unity is all that there is."*** - [Carla Rueckert, Law of One](https://www.llresearch.org/library/the_law_of_one_pdf/the_law_of_one_book_1.pdf) 
-
-* "The Soul contains all things but holds them all in an ***unextended unity.*** Differences unfold themselves, contraries are produced, but all is drawn into one organized system by the unity at the source. When you know that you have become this perfect work, when you are self-gathered in the purity of your being, ***nothing now remaining can shatter that inner unity...*** From unity they have arisen, and towards unity, they strive. ***Unity is thus identical with Goodness;*** for no being ever came into existence without possessing, from that very moment, an irresistible tendency towards unity. - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* "Behold, how good and pleasant it is when brothers ***dwell in unity***!" - [Psalm 133:1](https://www.biblegateway.com/passage/?search=Psalm+133%3A1&version=KJV) 
-
-* "The definition of Kabbalah is receptiveness. Having *seamless unity* from self to the whole. Like a hologram, everything is continuously interconnected as ***one integral unity."*** - [Rabbi Simon Jacobson.](https://www.youtube.com/watch?v=-myHhrUTOIo) **["holo"](https://w.wiki/Ctc)** comes from Ancient Greek "hólos" meaning (***“whole.”***)
-
-* "Finally, all of you, ***have unity of mind***, sympathy, brotherly love, a tender heart, and a humble mind." - [1 Peter 3:8](https://www.biblegateway.com/passage/?search=1+Peter+3%3A8&version=KJV)
-
-* “Above all other relationships he recognizes ***the universal brotherhood of every living thing.*** The symbol of the clasped hands, explained in the Lodge, reflects his attitude towards all the world, for he is the comrade of all created things. - [The Lost Keys of Freemasonry](https://en.wikisource.org/wiki/The_Lost_Keys_of_Freemasonry/Introduction)
-
-* "The first peace, which is most important, is that which comes within the souls of men when they realize their relationship, ***their oneness, with the universe*** and all its Powers, and when they realize that at the center of the universe dwells Wakan-Tanka, and that this center is really everywhere, it is within each of us. This is the real Peace, and the others are but reflections of this. The second peace is that which is made between two individuals, and the third is that which is made between two nations. But above all you should understand that there can never be peace between nations until there is first known that true peace which, as I have often said, is within the souls of men." - [Hehaka Sapa, Wichasha Wakan](https://en.wikiquote.org/wiki/Black_Elk)
-
-* “And all the books you've read have been read by other people. And all the songs you've loved have been heard by other people. And that girl that's pretty to you is pretty to other people. And that if you looked at these facts when you were happy, ***you would feel great because you are describing 'unity***.” - [Stephen Chbosky](https://www.goodreads.com/quotes/9625-and-all-the-books-you-ve-read-have-been-read-by)
 
 ***
 
