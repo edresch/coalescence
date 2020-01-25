@@ -190,9 +190,9 @@
 
 * German philosopher [Arthur Schopenhauer](https://w.wiki/DEx) believed that humans risk their lives for another because the rescuer realizes that he or she and the individual in need ***are one.*** He stated - *“[Universal compassion](https://news.uchicago.edu/story/helping-your-fellow-rat-rodents-show-empathy-driven-behavior) is the only guarantee of morality. My own true inner being actually exists in every living creature as truly and immediately as known to my consciousness only in myself. This realization is the ground of compassion upon which all true, that is to say unselfish, virtue rests...”*
 
-* "Unselfishness is God." - [Swami Vivekananda](https://w.wiki/CwK)
-
 * "At the decisive moment, the sense of separation is [*totally overcome.*](https://realitysandwich.com/181095/saving_others/) The prior sense of separateness is simply a function of the way we experience things in space and time. Because we experience ourselves as one with the person in need, when we risk our life to save them, ***we are essentially saving ourselves."*** - [Larry Dossey, One Mind](https://www.goodreads.com/book/show/17381613)
+
+* "Unselfishness is God." - [Swami Vivekananda](https://w.wiki/CwK)
 
 * “Lovers don’t finally meet somewhere. They’re in each other all along.” - [Mawlana Jalal-al-Din Rumi](https://www.goodreads.com/quotes/83514)
 
