@@ -70,6 +70,8 @@
 
 * *"The infinitely far-away is not only near, but it is infinitely near."* - [Edward Conze, Buddhist linguist](https://imgur.com/jlvewBA)
 
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
+
 * "There is no empty space. When we go *down - down - down* - there is vibrations - stuff popping - invisible connections - ***entanglement."*** - [Fred Alan Wolf, theoretical physicist](https://imgur.com/r5NuS1w)
 
 * [Quantum entanglement](https://w.wiki/DEw) is a label for when particles cannot be described independently of the state of the others, even when separated by a large distance. The term was coined by Nobel Prize-winning physicist Erwin Schrödinger who stated - *“I would not call it one but rather the characteristic trait of quantum mechanics.”*
@@ -92,8 +94,6 @@
 
 * "The entangled objects somehow communicate instantaneously at a distance. Distance has no meaning. Light-years have no meaning. Space has no meaning. In a sense, the entangled objects are not even communicating. They are the same thing. ***All is one."*** - [Roger Ebert](https://w.wiki/DSo)
 
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
-
 ***
 
 ### Unity
@@ -104,7 +104,7 @@
 
 * "Every priest of an ancient creed was one of the Initiates, that is to say, ***he knew perfectly well that only one religion existed***, and that the cultus merely served to translate this religion to the different nations according to their particular temperaments. To anyone possessing the key, ***all these Bibles reveal the same doctrine***; but this key, which can open Esoterism, is lost by the sectarians of our Western creeds. Yet every cultus has its tradition, its book, its Bible, which teach those who know how to read them ***the unity of all creeds, in spite of the differences existing in the ritual of various countries."*** - [The Tarot of the Bohemians](http://www.sacred-texts.com/tarot/tob/index.htm)
 
-* "The [Bahá'í Faith](https://en.wikipedia.org/wiki/Bah%C3%A1%27%C3%AD_Faith_and_the_unity_of_religion) states that there is a ***fundamental unity*** in many of the world's religions. It is one of the core teachings, alongside the unity of God, and the unity of humanity."
+* "The [Bahá'í Faith](https://en.wikipedia.org/wiki/Bah%C3%A1%27%C3%AD_Faith_and_the_unity_of_religion) states that there is a fundamental unity in many of the world's religions. It is one of the core teachings, alongside the unity of God, and the unity of humanity."
 
 * “That Universal Being, that contains all, and which is all, put into motion the Soul and the World, all that nature comprises. In the manifold  ***unity of universal life,*** the innumerable individualities distinguished by their variations, are, nevertheless, united in such a manner that the whole is one, and that ***everything proceeds from Unity.”*** - [Hermes, Asclepios](https://www.sacred-texts.com/eso/vow/vow09.htm) 
 
