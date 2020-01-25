@@ -200,7 +200,7 @@
 
 * "The distinction between yourself and others is ***not visible*** to us. Thus, to learn is the same as to teach... *"Love"* implies a unity that is so great that we do not see each other simply as close friends, or brothers and sisters, but, ideally, ***we see one being.*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
 
-* **note** - Humans only see [0.0035%](http://www.madsci.org/posts/archives/2007-08/1188407794.Ph.r.html) of the [electromagnetic spectrum.](https://i.imgur.com/wEV9MoJ.jpg)
+* note - Humans only see [0.0035%](http://www.madsci.org/posts/archives/2007-08/1188407794.Ph.r.html) of the [electromagnetic spectrum.](https://i.imgur.com/wEV9MoJ.jpg)
 
 * "The inner self is conscious of itself both as an individuality and as an individuality that is a part of all other consciousness. The outer ego is not continuously aware of this fact. If the ego were aware of the ***constant barrage of telepathic communications*** that do impinge upon it, it would have a most difficult time retaining a sense of identity." - [Jane Roberts, The Seth Material](https://www.goodreads.com/book/show/324424)
 
