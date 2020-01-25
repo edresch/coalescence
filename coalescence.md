@@ -146,6 +146,8 @@
 
 * "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - Plotinus, Enneads, 204-270 AD.
 
+* "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
+
 ***
 
 ### Unity
@@ -219,8 +221,6 @@
 * “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
 
 * [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
-
-* "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
 
 ***
 
@@ -422,6 +422,8 @@ AD.
 
 * "One should know oneself to be the ***Supreme Brahman*** free from all bondage, merit and demerit, past and future, and also from cause and effect. Unlike the knowledge gained through the eyes etc. ***The knowledge of the Knower does not cease to exist.*** Like the heat and light of the sun, the Knowledge which is changeless, eternal and self-effulgent has an existence in the Self entirely independent of everything else. ***The Self is always the same in all beings and free from old age, death, and fear."*** - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
 
+* "The One is without boundaries. Nothing exists outside of it to border it. The One cannot be investigated. Nothing exists apart from it to investigate it. The One cannot be measured. Nothing exists external to it to measure it. It is not right to think of it as a God or as like God. It is more than just God. Nothing is above it. Nothing rules it. Since everything exists within it, it does not exist within anything. ***Since it is not dependent on anything it is eternal.*** It is absolutely complete and so needs nothing. It is utterly perfect. Light." - [The Secret Book of John](http://www.gnosis.org/naghamm/apocjn-davies.html)
+
 * "What was it like to wake up after having never gone to sleep? That was when you were born. You didn't come into this world, you came out of it. You are something the whole universe is doing in the same way that a wave is something that the whole ocean is doing." - [Alan Watts](https://genius.com/Alan-watts-the-real-you-annotated)
 
 * *"Close your eyes and think about it.* Can you pin down the “I” that is having experiences? Can you put a boundary or border on it? Can you confine it to a definitive space? The answer you will come to is that you can’t put anything finite around “I.” It’s not a finite thing, whatever it is. ***“I” is therefore infinite."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
@@ -439,6 +441,8 @@ AD.
 
 * "Man is haunted by the incredible delusion that his present birth is his first entrance into life." - [Arthur Schopenhauer, philosopher](https://imgur.com/aBwxAX0)
 
+* "He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
+
 * ***“Self is only an idea, a mortal idea.*** That which passes into everything is one thing. It's a dream already ended. There's nothing to be afraid of and nothing to be glad about. Mountains will crumble, but the emptiness of space, which is the one universal essence of mind, the vast awakenerhood, empty and awake, will never crumble away because ***it was never born.”*** - [Jack Kerouac](https://www.goodreads.com/quotes/7492) 
 
 * There once was a tiny drop of rainwater that fell from the great, rolling skies far above and into a vast run river down below. ..and became it. And yet did the raindrop retain its very identity. Yet how could this be? For it was, after all, no longer a raindrop. It was now the river. It became the awareness of the river by realizing upon entering that it and the river ***had never been apart to begin with.*** As a raindrop, however, it had lost sight of this truth and felt itself small and separated. Upon entry into the river, its identity did not become replaced by the river's - the river's identity did not obliterate the raindrops. Rather, the raindrop came to ultimately realize that its true identity had all along been much more grand, much more vast than it had ever prior given itself credit for. The raindrop is the river. The atom is the universe. - [Freeman Broiler](http://i.imgur.com/ETTzpzU.png)
@@ -451,10 +455,6 @@ AD.
 
 * "Men directing their weapons against each other- under doom of death yet neatly lined up to fight as in the pyrrhic sword-dances of their sport- this is enough to tell us that all human intentions are but play, ***that death is nothing terrible,*** that to die in a war or in a fight is but to taste a little beforehand what old age has in store, ***to go away earlier and come back the sooner."*** - Plotinus, Enneads, 204-270 
 AD.
-
-* "He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
-
-* "The One is without boundaries. Nothing exists outside of it to border it. The One cannot be investigated. Nothing exists apart from it to investigate it. The One cannot be measured. Nothing exists external to it to measure it. It is not right to think of it as a God or as like God. It is more than just God. Nothing is above it. Nothing rules it. Since everything exists within it, it does not exist within anything. ***Since it is not dependent on anything it is eternal.*** It is absolutely complete and so needs nothing. It is utterly perfect. Light." - [The Secret Book of John](http://www.gnosis.org/naghamm/apocjn-davies.html)
 
 * *"Life is a beautiful, magnificent thing, even to a jellyfish...* The trouble is you won't fight. You've given in, continually dwelling on sickness and death. But there's something just as inevitable as death, and that's life. ***Life, life, life.*** Think of all the power that's in the universe, moving the earth, growing the trees. That's the same power within you if you only have the courage and the will to use it." - [Charlie Chaplin](https://youtu.be/LEX0v-jOLHA)
 
