@@ -250,9 +250,40 @@
 
 ***
 
-### Fundamental Conscious
+### Consciousness
 
-* *"The Universe is Mental--held in the Mind of THE ALL."* - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
+* *"Consciousness is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
+
+* "Consciousness is not something that you have, it's something that you are." - [Eckhart Tolle](http://subtitlelist.com/en/Eckhart-Tolle--The-Never-Ending-Present-Moment-258)
+
+* "I believe that [consciousness](https://imgur.com/JxX7RFX) is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
+
+* "The fact that the universe is comprehensible is a miracle. The eternal mystery of the world is its comprehensibility." - [Albert Einstein](https://w.wiki/Czr)
+
+* [Indefinite Monism](https://w.wiki/DRp) is a philosophical conception of reality that asserts that only Awareness is real. Awareness in this system is not equivalent to consciousness. Rather, Awareness is the venue for consciousness.
+
+* "The one prevailing idea found in all ancient teaching is that the whole Kosmos has sprung from the [***divine thought.***](https://imgur.com/G6EkZk0) Everything in the Universe is conscious. Consciousness contains the cognizer, the thing cognized and the cognition, ***all three in itself and all three one."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-03.htm)
+
+* "[It from Bit](https://w.wiki/CwH) symbolizes the idea that every item of the physical world has at bottom — at a very deep bottom, in most instances — an immaterial source and explanation; that what we call reality arises in the last analysis from the posing of yes-no questions and the registering of equipment-evoked responses; in short, that all things physical are information-theoretic in origin and this is a ***participatory universe.***" - [John Archibald Wheeler, theoretical physicist](https://cqi.inf.usi.ch/qic/wheeler.pdf)
+
+* "When you sense and perceive of yourself, where do those sensations and perceptions occur? They occur here in your field of consciousness. They are nothing but modulations of consciousness. They are made of consciousness. ***Your body is made of consciousness. Your body exists in your mind."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
+
+* "Body consciousness and the world are not different; they are identical." - [Sri Nisargadatta Maharaj](http://realizedone.com/post/the-final-talks-of-sri-nisargadatta-maharaj-talk/) 
+
+* "When you make the two one, and when you make the inner as the outer and the outer as the inner and the above as the below then shall you enter the Kingdom. If those who lead you say to you, 'See, the kingdom is in the sky,' then the birds of the sky will precede you. If they say to you, 'It is in the sea,' then the fish will precede you. Rather, the kingdom is inside of you, and it is outside of you." - [The Gospel of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
+
+* "How does your mind look to your eyes? It looks like what you see out in front of you. Because all that you see out in front of you is how you feel inside your head." - [Alan Watts](https://youtu.be/B-_dtyHYwOU?t=61)
+
+* "Let a man first purify himself and then observe: ***he will see all things in an Intellectual substance, himself having become an Intellectual Kosmos...*** No doubt since knower, knowing, and known, are identical, all merges into a unity... No longer is there a spectator outside gazing on an outside spectacle; ***the clear-eyed hold the vision within themselves...*** In that Intellectual Kosmos, where all is one total, every entity that can be singled out is an intellective essence and a participant in life... ***For every real being must be in actuality not merely in potentiality..."*** - Plotinus, Enneads, 204-270 
+AD.
+
+* "When the mind becomes very silent, you can clearly see that all that exists in the world are brief moments of consciousness arising together with the six sense objects. If you can make the mind very focused you see that the whole world breaks down into these small events of sight and the knowing, sound and the knowing, thought and the knowing. ***No longer are these houses, cars, bodies or even oneself. All you see are particles of consciousness as experience.*** You will see differently that consciousness is like waves, like a sea, an ocean. ***Now it is not particles but instead every sight and every sound is contained in this ocean of consciousness.*** From this perspective, there is no sense of particles at all." - [Jack Kornfield](https://imgur.com/sYAw0zf)
+
+* *"My world is myself. I am at home.* ***You are the pure awareness that illuminates consciousness and its infinite content. Awareness is primordial;*** it is the original state, beginningless, endless, uncaused, unsupported, without parts, without change. There can be no consciousness without awareness, but there can be awareness without consciousness... ***Awareness is the common matrix of every experience."*** - [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf) 
+
+* ***"There are no distinctions such as the knower, the knowledge and the known.*** In the dream state, even though there is no contact with the external world, the mind alone projects the entire dream-universe of the enjoyer, etc. Similarly, the waking-state is [no different.](https://youtu.be/UfV89yz7bug) ***All this world of myriad phenomena is but a projection of the mind.*** Just as the wave, the surf, the whirlpool, the bubbles, etc. are all, in essence, nothing but water, so too, ***Consciousness alone is everything from the body, to the ego.*** - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf) 
+
+* "The Universe is Mental--held in the Mind of THE ALL." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
 
 * "According to my view of quantum theory, matter does not produce consciousness. It is the other way around. Consciousness produces material events." - [Norman Friedman, physicist](https://imgur.com/jhJH3I6)
 
@@ -300,8 +331,6 @@
 
 * *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
 
-* "I believe that [consciousness](https://imgur.com/JxX7RFX) is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
-
 * “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
 
 * [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
@@ -328,39 +357,6 @@ AD.
 * In 2016 the CIA [released results](https://www.cia.gov/library/readingroom/docs/CIA-RDP79-00999A000300030027-0.pdf) of studies conducted on Israeli psychic Uri Geller. ***Geller successfully described and [drew pictures](https://imgur.com/kXcSWAC) that were outside of a shielded room.*** It's stated - *"As a result of Geller's success in this experimental period, we consider that he has demonstrated his perceptual ability in a convincing and unambiguous manner."*
 
 * "The particular holographic type of consciousness, situated in the particular event horizons as a sort of bordering memory domains, can effectively function as a nested information workspace, that in humans is instrumental in constructing a mental model of reality for internal use in each individual, ***thus functioning as a global reference system. We propose this can be readily explained by a holographic memory space that contains the total history and future probability states of the particular cell..."*** - [Dirk K.F. Meijer, Conscious Universe](https://www.researchgate.net/publication/320267484)
-
-***
-
-### Intellectual Cosmos
-
-* *"Consciousness is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
-
-* "The fact that the universe is comprehensible is a miracle. The eternal mystery of the world is its comprehensibility." - [Albert Einstein](https://w.wiki/Czr)
-
-* [Indefinite Monism](https://w.wiki/DRp) is a philosophical conception of reality that asserts that only Awareness is real. Awareness in this system is not equivalent to consciousness. Rather, Awareness is the venue for consciousness.
-
-* "The one prevailing idea found in all ancient teaching is that the whole Kosmos has sprung from the [***divine thought.***](https://imgur.com/G6EkZk0) Everything in the Universe is conscious. Consciousness contains the cognizer, the thing cognized and the cognition, ***all three in itself and all three one."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-03.htm)
-
-* "Consciousness is not something that you have, it's something that you are." - [Eckhart Tolle](http://subtitlelist.com/en/Eckhart-Tolle--The-Never-Ending-Present-Moment-258)
-
-* "[It from Bit](https://w.wiki/CwH) symbolizes the idea that every item of the physical world has at bottom — at a very deep bottom, in most instances — an immaterial source and explanation; that what we call reality arises in the last analysis from the posing of yes-no questions and the registering of equipment-evoked responses; in short, that all things physical are information-theoretic in origin and this is a ***participatory universe.***" - [John Archibald Wheeler, theoretical physicist](https://cqi.inf.usi.ch/qic/wheeler.pdf)
-
-* "When you sense and perceive of yourself, where do those sensations and perceptions occur? They occur here in your field of consciousness. They are nothing but modulations of consciousness. They are made of consciousness. ***Your body is made of consciousness. Your body exists in your mind."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
-
-* "Body consciousness and the world are not different; they are identical." - [Sri Nisargadatta Maharaj](http://realizedone.com/post/the-final-talks-of-sri-nisargadatta-maharaj-talk/) 
-
-* "When you make the two one, and when you make the inner as the outer and the outer as the inner and the above as the below then shall you enter the Kingdom. If those who lead you say to you, 'See, the kingdom is in the sky,' then the birds of the sky will precede you. If they say to you, 'It is in the sea,' then the fish will precede you. Rather, the kingdom is inside of you, and it is outside of you." - [The Gospel of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
-
-* "How does your mind look to your eyes? It looks like what you see out in front of you. Because all that you see out in front of you is how you feel inside your head." - [Alan Watts](https://youtu.be/B-_dtyHYwOU?t=61)
-
-* "Let a man first purify himself and then observe: ***he will see all things in an Intellectual substance, himself having become an Intellectual Kosmos...*** No doubt since knower, knowing, and known, are identical, all merges into a unity... No longer is there a spectator outside gazing on an outside spectacle; ***the clear-eyed hold the vision within themselves...*** In that Intellectual Kosmos, where all is one total, every entity that can be singled out is an intellective essence and a participant in life... ***For every real being must be in actuality not merely in potentiality..."*** - Plotinus, Enneads, 204-270 
-AD.
-
-* "When the mind becomes very silent, you can clearly see that all that exists in the world are brief moments of consciousness arising together with the six sense objects. If you can make the mind very focused you see that the whole world breaks down into these small events of sight and the knowing, sound and the knowing, thought and the knowing. ***No longer are these houses, cars, bodies or even oneself. All you see are particles of consciousness as experience.*** You will see differently that consciousness is like waves, like a sea, an ocean. ***Now it is not particles but instead every sight and every sound is contained in this ocean of consciousness.*** From this perspective, there is no sense of particles at all." - [Jack Kornfield](https://imgur.com/sYAw0zf)
-
-* *"My world is myself. I am at home.* ***You are the pure awareness that illuminates consciousness and its infinite content. Awareness is primordial;*** it is the original state, beginningless, endless, uncaused, unsupported, without parts, without change. There can be no consciousness without awareness, but there can be awareness without consciousness... ***Awareness is the common matrix of every experience."*** - [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf) 
-
-* ***"There are no distinctions such as the knower, the knowledge and the known.*** In the dream state, even though there is no contact with the external world, the mind alone projects the entire dream-universe of the enjoyer, etc. Similarly, the waking-state is [no different.](https://youtu.be/UfV89yz7bug) ***All this world of myriad phenomena is but a projection of the mind.*** Just as the wave, the surf, the whirlpool, the bubbles, etc. are all, in essence, nothing but water, so too, ***Consciousness alone is everything from the body, to the ego.*** - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf) 
 
 ***
 
