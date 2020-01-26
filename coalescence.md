@@ -264,7 +264,7 @@
 
 * [Indefinite Monism](https://w.wiki/DRp) is a philosophical conception of reality that asserts that only Awareness is real. Awareness in this system is not equivalent to consciousness. Rather, Awareness is the venue for consciousness.
 
-* "The one prevailing idea found in all ancient teaching is that the whole Kosmos has sprung from the [***divine thought.***](https://imgur.com/G6EkZk0) Everything in the Universe is conscious. Consciousness contains the cognizer, the thing cognized and the cognition, ***all three in itself and all three one."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-03.htm)
+* "The one prevailing idea found in all ancient teaching is that the whole Kosmos has sprung from the divine thought. Everything in the Universe is conscious. Consciousness contains the cognizer, the thing cognized and the cognition, ***all three in itself and all three one."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-03.htm)
 
 * "[It from Bit](https://w.wiki/CwH) symbolizes the idea that every item of the physical world has at bottom — at a very deep bottom, in most instances — an immaterial source and explanation; that what we call reality arises in the last analysis from the posing of yes-no questions and the registering of equipment-evoked responses; in short, that all things physical are information-theoretic in origin and this is a ***participatory universe.***" - [John Archibald Wheeler, theoretical physicist](https://cqi.inf.usi.ch/qic/wheeler.pdf)
 
@@ -304,6 +304,8 @@ AD.
 * "Consciousness is much more of the implicate order than is matter . . . Yet at a deeper level [matter and consciousness] are actually inseparable and interwoven, just as in the computer game the player and the screen are united by participation." - [David Bohm, theoretical physicist](https://w.wiki/Cwg)
 
 * "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
+
+* "God is cause of Himself; for Himself and of Himself He is what He is, the first self, transcendently The Self. Since no other has generated Him, He is what He made Himself: He is not, therefore, as He happened to be but as He acted Himself into being. He had no need of being who brought it to be. All is always so and all is always so reproduced: therefore the reason-principles of things must lie always within the producing powers in a still more perfect form... The act of the will must be self-determined and the being self-caused; ***thus reason shows the Supreme to be its own Author..."*** - Plotinus, Enneads, 204-270 AD.
 
 * “We are a way for the cosmos to know itself.” ― [Carl Sagan, Cosmos](https://w.wiki/Ckm)
 
@@ -414,7 +416,9 @@ AD.
 
 * *"The only secret people keep is immortality."* - [Emily Dickinson](https://www.goodreads.com/quotes/204466)
 
-* "All truth is [*eternal.*](https://imgur.com/YyTq8Uh) Truth is nobody’s property; no race, no individual can lay any exclusive claim to it. Truth is the nature of all souls. - [Swami Vivekananda](https://w.wiki/CwK) 
+* "All truth is *eternal.* Truth is nobody’s property; no race, no individual can lay any exclusive claim to it. Truth is the nature of all souls. - [Swami Vivekananda](https://w.wiki/CwK) 
+
+* ***"Eternity means Ever-Being. Eternity is an unchanging unity.*** Neither coming to be nor passing away. Absolutely One, it has never known measure and stands outside of number... And having no constituent parts it accepts no pattern, forms no shape. Changelessly motionless and ever holding the Universal content in actual. presence. All its content is in immediate concentration as at one point; nothing in it ever knows development: all remains identical within itself, ***knowing nothing of change.*** That which neither has been nor will be, but simply possesses being; that which enjoys stable existence as neither in process of change nor having ever changed- that is Eternity. ***Being itself could not make such an opposite into Being..."*** - Plotinus, Enneads, 204-270 AD.
 
 * The philosophy of [Sankara](https://w.wiki/CmD) states [Brahman](https://w.wiki/CmE) (Ultimate Reality) alone is real; the world is non-real, and the [The Ātman](https://w.wiki/CmF) (Self) is essentially not-different from Brahman. 
 
