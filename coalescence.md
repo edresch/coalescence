@@ -242,9 +242,9 @@
 
 * "Just as one is free from the ideas of 'me' and 'mine' in respect of others' bodies, so, one becomes free from those ideas in respect of one's own body when one knows the Supreme Truth." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
 
-* "The wise man beholds all beings in the Self, and the Self in all beings; for that reason, he does not hate anyone." -  [Isa Upanishad](http://www.ishwar.com/hinduism/holy_upanishads/isa_upanishad/)
-
 * "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
+
+* "The wise man beholds all beings in the Self, and the Self in all beings; for that reason, he does not hate anyone." -  [Isa Upanishad](http://www.ishwar.com/hinduism/holy_upanishads/isa_upanishad/)
 
 * "We do not need a new religion or a new bible. We need a new experience--a new feeling of what it to be "I." The lowdown (which is, of course, the secret and profound view) on life is that ***our normal sensation of self is a hoax*** or, at best, a temporary role that we are playing, or have been conned into playing. If you know that "I", in the sense of the person, the front, the ego, it really doesn't exist, then it won't go to your head too badly." - [Alan Watts](https://genius.com/Alan-watts-the-book-chapter-1-lyrics)
 
