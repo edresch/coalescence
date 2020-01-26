@@ -254,11 +254,11 @@
 
 ### Consciousness
 
-* *"Consciousness is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
+* *"[Consciousness](https://imgur.com/JxX7RFX) is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
 
 * "Consciousness is not something that you have, it's something that you are." - [Eckhart Tolle](http://subtitlelist.com/en/Eckhart-Tolle--The-Never-Ending-Present-Moment-258)
 
-* "I believe that [consciousness](https://imgur.com/JxX7RFX) is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
+* "I believe that consciousness is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
 
 * "The fact that the universe is comprehensible is a miracle. The eternal mystery of the world is its comprehensibility." - [Albert Einstein](https://w.wiki/Czr)
 
