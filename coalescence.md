@@ -268,6 +268,8 @@
 
 * "When you sense and perceive of yourself, where do those sensations and perceptions occur? They occur here in your field of consciousness. They are nothing but modulations of consciousness. They are made of consciousness. ***Your body is made of consciousness. Your body exists in your mind."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
 
+* "What was it like to wake up after having never gone to sleep? That was when you were born. You didn't come into this world, you came out of it. You are something the whole universe is doing in the same way that a wave is something that the whole ocean is doing." - [Alan Watts](https://genius.com/Alan-watts-the-real-you-annotated)
+
 * "Body consciousness and the world are not different; they are identical." - [Sri Nisargadatta Maharaj](http://realizedone.com/post/the-final-talks-of-sri-nisargadatta-maharaj-talk/) 
 
 * "When you make the two one, and when you make the inner as the outer and the outer as the inner and the above as the below then shall you enter the Kingdom. If those who lead you say to you, 'See, the kingdom is in the sky,' then the birds of the sky will precede you. If they say to you, 'It is in the sea,' then the fish will precede you. Rather, the kingdom is inside of you, and it is outside of you." - [The Gospel of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
@@ -423,8 +425,6 @@ AD.
 * "One should know oneself to be the ***Supreme Brahman*** free from all bondage, merit and demerit, past and future, and also from cause and effect. Unlike the knowledge gained through the eyes etc. ***The knowledge of the Knower does not cease to exist.*** Like the heat and light of the sun, the Knowledge which is changeless, eternal and self-effulgent has an existence in the Self entirely independent of everything else. ***The Self is always the same in all beings and free from old age, death, and fear."*** - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
 
 * "The One is without boundaries. Nothing exists outside of it to border it. The One cannot be investigated. Nothing exists apart from it to investigate it. The One cannot be measured. Nothing exists external to it to measure it. It is not right to think of it as a God or as like God. It is more than just God. Nothing is above it. Nothing rules it. Since everything exists within it, it does not exist within anything. ***Since it is not dependent on anything it is eternal.*** It is absolutely complete and so needs nothing. It is utterly perfect. Light." - [The Secret Book of John](http://www.gnosis.org/naghamm/apocjn-davies.html)
-
-* "What was it like to wake up after having never gone to sleep? That was when you were born. You didn't come into this world, you came out of it. You are something the whole universe is doing in the same way that a wave is something that the whole ocean is doing." - [Alan Watts](https://genius.com/Alan-watts-the-real-you-annotated)
 
 * *"Close your eyes and think about it.* Can you pin down the “I” that is having experiences? Can you put a boundary or border on it? Can you confine it to a definitive space? The answer you will come to is that you can’t put anything finite around “I.” It’s not a finite thing, whatever it is. ***“I” is therefore infinite."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
 
