@@ -244,6 +244,8 @@
 
 * "The wise man beholds all beings in the Self, and the Self in all beings; for that reason, he does not hate anyone." -  [Isa Upanishad](http://www.ishwar.com/hinduism/holy_upanishads/isa_upanishad/)
 
+* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
+
 * "We do not need a new religion or a new bible. We need a new experience--a new feeling of what it to be "I." The lowdown (which is, of course, the secret and profound view) on life is that ***our normal sensation of self is a hoax*** or, at best, a temporary role that we are playing, or have been conned into playing. If you know that "I", in the sense of the person, the front, the ego, it really doesn't exist, then it won't go to your head too badly." - [Alan Watts](https://genius.com/Alan-watts-the-book-chapter-1-lyrics)
 
 * "Establish yourself firmly in the awareness of 'I AM'. This is the beginning, and also the end of all endeavor. Give up all questions except one: ‘Who am I?’ After all, the only fact you are sure of is that you are. The ‘I am’ is certain. The ‘I am this’ is not. ***Nothing, concrete or abstract, which you perceive can be you.*** The very act of perceiving shows that you are not what you perceive. Once you are convinced that you cannot say truthfully about your self anything except ‘I am’, and ***that nothing that can be pointed at, can be your self***, the need for the ‘I am’ is over -- you are no longer intent on verbalizing what you are. All you need is to get rid of the tendency to define your self." - [Sri Nisargadatta Maharaj](https://www.nonduality.com/beyond.htm)
@@ -367,8 +369,6 @@ AD.
 * "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
 
 * "Nature by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
-
-* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
 
 * [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
 
