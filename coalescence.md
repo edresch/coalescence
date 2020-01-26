@@ -252,6 +252,8 @@
 
 ### Fundamental Conscious
 
+* *"The Universe is Mental--held in the Mind of THE ALL."* - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
+
 * "According to my view of quantum theory, matter does not produce consciousness. It is the other way around. Consciousness produces material events." - [Norman Friedman, physicist](https://imgur.com/jhJH3I6)
 
 * “I regard consciousness as fundamental. I regard matter as derivative from consciousness.” - [Max Planck, Nobel Prize-winning physicist](https://w.wiki/DEz)
@@ -273,8 +275,6 @@
 * "Man is the most insane species. He worships an invisible God and destroys a visible Nature. Unaware that the Nature he is destroying is this God he is worshipping." - [Hubert Reet](https://imgur.com/R676L9R) 
 
 * "The external world is as much you as your own body. Your skin doesn’t separate you from the world. It’s a bridge through which the external world flows into you, and you flow into it. - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
-
-* "The Universe is Mental--held in the Mind of THE ALL." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
 
 * "Salt is a simple here, and yet a manifold. This thing is therefore white only in so far as it is brought in contact with our eye, also sharp to our tongue, also cubic to our touch, etc. The entire diversity of these sides we do not receive from the thing, but from ourselves. Thus they (the sides) fall asunder on our senses which are separate from each other. ***We are therefore the universal medium in which such moments isolate themselves***, and are for and by themselves. But these different sides which consciousness takes upon itself are determined each for itself, as it is found in the universal medium; the White is merely in opposition to the Black, etc., and the thing is One precisely through the fact that it opposes itself to others. But it does not exclude others from itself through being One, ***for to be One is the universal relation to itself, and from the fact that it is One it is rather like to all."*** - [Georg Wilhelm Friedrich Hegel, The Phenomenology of Spirit](https://archive.org/stream/jstor-25665651/25665651_djvu.txt)
 
