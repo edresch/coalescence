@@ -250,51 +250,49 @@
 
 ***
 
-### Oneness
+### Fundamental Conscious
 
-* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
+* "According to my view of quantum theory, matter does not produce consciousness. It is the other way around. Consciousness produces material events." - [Norman Friedman, physicist](https://imgur.com/jhJH3I6)
 
-* "Nature by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
+* “I regard consciousness as fundamental. I regard matter as derivative from consciousness.” - [Max Planck, Nobel Prize-winning physicist](https://w.wiki/DEz)
 
-* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
+* “Consciousness does not exist because the physical world does; the physical world exists because consciousness does." - [Jim Tucker, Ph.D.](https://imgur.com/yE84GmL)
 
-* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
+* "The universe is of the nature of a thought or sensation in a universal Mind... To put the conclusion crudely — the stuff of the world is mind-stuff." - [Arthur Eddington, astrophysicist](https://w.wiki/CwG)
 
-* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
+* "Consciousness is the source of all reality. The entire human being, brain, consciousness and all, is like the universe which surrounds him, nothing more or less than an extraordinarily complex system of energy fields." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
 
-* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
+* "Our individual mind is seen as a part of a larger universal consciousness, being instrumental in the entire fabric of reality. This is so, since the conscious activity of an observer observing the change of an observable is, per definition mathematically not computable." - [Dirk K.F. Meijer, pharmacologist, Conscious Universe](https://www.researchgate.net/publication/320267484)
 
-* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
+* "Consciousness is much more of the implicate order than is matter . . . Yet at a deeper level [matter and consciousness] are actually inseparable and interwoven, just as in the computer game the player and the screen are united by participation." - [David Bohm, theoretical physicist](https://w.wiki/Cwg)
 
-* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - Plotinus, Enneads, 204-270 AD.
+* "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
 
-* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
+* “We are a way for the cosmos to know itself.” ― [Carl Sagan, Cosmos](https://w.wiki/Ckm)
 
-* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior, I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
+* "Man is the most insane species. He worships an invisible God and destroys a visible Nature. Unaware that the Nature he is destroying is this God he is worshipping." - [Hubert Reet](https://imgur.com/R676L9R) 
 
-* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
+* "The external world is as much you as your own body. Your skin doesn’t separate you from the world. It’s a bridge through which the external world flows into you, and you flow into it. - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
 
-* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
+* "The Universe is Mental--held in the Mind of THE ALL." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
 
-* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
+* "Salt is a simple here, and yet a manifold. This thing is therefore white only in so far as it is brought in contact with our eye, also sharp to our tongue, also cubic to our touch, etc. The entire diversity of these sides we do not receive from the thing, but from ourselves. Thus they (the sides) fall asunder on our senses which are separate from each other. ***We are therefore the universal medium in which such moments isolate themselves***, and are for and by themselves. But these different sides which consciousness takes upon itself are determined each for itself, as it is found in the universal medium; the White is merely in opposition to the Black, etc., and the thing is One precisely through the fact that it opposes itself to others. But it does not exclude others from itself through being One, ***for to be One is the universal relation to itself, and from the fact that it is One it is rather like to all."*** - [Georg Wilhelm Friedrich Hegel, The Phenomenology of Spirit](https://archive.org/stream/jstor-25665651/25665651_djvu.txt)
 
-* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
+* "Imagine that all of reality is a stream of water, where water represents consciousness. Now imagine that within the stream, whirlpools form. While they may *look different* from other parts of the stream, the whirlpools are made of nothing more than water. ***To say that the brain generates mind is as absurd as to say that a whirlpool generates water.*** - [Bernardo Kastrup, Ph.D.](https://imgur.com/jca3hDu)
 
-* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
+* "There is nothing about a brain, studied at any scale, that even suggests that it might harbor consciousness." - [Sam Harris, neuroscientist](https://samharris.org/the-mystery-of-consciousness-ii/)
 
-* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
+* “It is very difficult for us to take stock of the fact that the localization of the personality, of the conscious mind, inside the body is only symbolic, just an aid for practical use.” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://www.organism.earth/library/document/mind-and-matter)
 
-* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
+* “Mind is first. Consciousness exists independently of brain activity. It does not depend upon the brain for its survival. The brain is not the creator of the mind, it is an antenna/receiver for the mind." - [Gary Schwartz, psychologist](https://imgur.com/5yj3uUL)
 
-* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
+* "Matter is not that which produces consciousness, but that which limits it and confines its intensity within certain limits.” - [F. C. S. Schiller, philosopher](https://archive.org/details/riddlesofsphinx00schiuoft/page/n6)
 
-* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - Plotinus, Enneads, 204-270 AD.
+* “As a neurosurgeon, I was taught that the brain creates consciousness…The truth is that the more we come to understand the physical brain, the more we realize it does not create consciousness at all. ***We are conscious in spite of our brain.*** The brain serves more as a reducing valve or filter, limiting pre-existing consciousness..." - [Eben Alexander, neurosurgeon](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6170087/)
 
-* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
+* "The idea that a consciousness can exist and make memories independent of the brain … is a startling finding." - Dr. Allan Hamilton, Harvard Ph.D. (Commenting on a patient’s detailed memories that occurred when they had *[no brain activity.](https://youtu.be/rlfYnuNR3lI?t=111)*)
 
-* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
-
-* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
+* Neuropsychologist Karl Lashley wanted to understand where memories are stored in the brain. To do this, he trained rats to do tasks for food. Once they learned the task, he systematically destroyed one part of their brain at a time. Miraculously, ***[the rats could still perform the tasks](https://i.imgur.com/U5Ophyh.png)*** regardless of which part of the brain was destroyed. This test was also successful with both [*monkeys*](https://i.imgur.com/KS61wjr.png), [*salamanders*](http://www.instinct.org/texts/shufflebrain/shufflebrain-book05.html) and has been naturally [*observed in humans.*](https://imgur.com/MRLQFEL)
 
 ***
 
@@ -364,47 +362,53 @@ AD.
 
 * ***"There are no distinctions such as the knower, the knowledge and the known.*** In the dream state, even though there is no contact with the external world, the mind alone projects the entire dream-universe of the enjoyer, etc. Similarly, the waking-state is [no different.](https://youtu.be/UfV89yz7bug) ***All this world of myriad phenomena is but a projection of the mind.*** Just as the wave, the surf, the whirlpool, the bubbles, etc. are all, in essence, nothing but water, so too, ***Consciousness alone is everything from the body, to the ego.*** - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf) 
 
-* "According to my view of quantum theory, matter does not produce consciousness. It is the other way around. Consciousness produces material events." - [Norman Friedman, physicist](https://imgur.com/jhJH3I6)
+***
 
-* “I regard consciousness as fundamental. I regard matter as derivative from consciousness.” - [Max Planck, Nobel Prize-winning physicist](https://w.wiki/DEz)
+### Oneness
 
-* “Consciousness does not exist because the physical world does; the physical world exists because consciousness does." - [Jim Tucker, Ph.D.](https://imgur.com/yE84GmL)
+* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
 
-* "The universe is of the nature of a thought or sensation in a universal Mind... To put the conclusion crudely — the stuff of the world is mind-stuff." - [Arthur Eddington, astrophysicist](https://w.wiki/CwG)
+* "Nature by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
 
-* "Consciousness is the source of all reality. The entire human being, brain, consciousness and all, is like the universe which surrounds him, nothing more or less than an extraordinarily complex system of energy fields." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
+* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
 
-* "Our individual mind is seen as a part of a larger universal consciousness, being instrumental in the entire fabric of reality. This is so, since the conscious activity of an observer observing the change of an observable is, per definition mathematically not computable." - [Dirk K.F. Meijer, pharmacologist, Conscious Universe](https://www.researchgate.net/publication/320267484)
+* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
 
-* "Consciousness is much more of the implicate order than is matter . . . Yet at a deeper level [matter and consciousness] are actually inseparable and interwoven, just as in the computer game the player and the screen are united by participation." - [David Bohm, theoretical physicist](https://w.wiki/Cwg)
+* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
 
-* "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
+* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
 
-* “We are a way for the cosmos to know itself.” ― [Carl Sagan, Cosmos](https://w.wiki/Ckm)
+* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
 
-* "Man is the most insane species. He worships an invisible God and destroys a visible Nature. Unaware that the Nature he is destroying is this God he is worshipping." - [Hubert Reet](https://imgur.com/R676L9R) 
+* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - Plotinus, Enneads, 204-270 AD.
 
-* "The external world is as much you as your own body. Your skin doesn’t separate you from the world. It’s a bridge through which the external world flows into you, and you flow into it. - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
+* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
 
-* "The Universe is Mental--held in the Mind of THE ALL." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
+* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior, I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
 
-* "Salt is a simple here, and yet a manifold. This thing is therefore white only in so far as it is brought in contact with our eye, also sharp to our tongue, also cubic to our touch, etc. The entire diversity of these sides we do not receive from the thing, but from ourselves. Thus they (the sides) fall asunder on our senses which are separate from each other. ***We are therefore the universal medium in which such moments isolate themselves***, and are for and by themselves. But these different sides which consciousness takes upon itself are determined each for itself, as it is found in the universal medium; the White is merely in opposition to the Black, etc., and the thing is One precisely through the fact that it opposes itself to others. But it does not exclude others from itself through being One, ***for to be One is the universal relation to itself, and from the fact that it is One it is rather like to all."*** - [Georg Wilhelm Friedrich Hegel, The Phenomenology of Spirit](https://archive.org/stream/jstor-25665651/25665651_djvu.txt)
+* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
 
-* "Imagine that all of reality is a stream of water, where water represents consciousness. Now imagine that within the stream, whirlpools form. While they may *look different* from other parts of the stream, the whirlpools are made of nothing more than water. ***To say that the brain generates mind is as absurd as to say that a whirlpool generates water.*** - [Bernardo Kastrup, Ph.D.](https://imgur.com/jca3hDu)
+* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
 
-* "There is nothing about a brain, studied at any scale, that even suggests that it might harbor consciousness." - [Sam Harris, neuroscientist](https://samharris.org/the-mystery-of-consciousness-ii/)
+* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
 
-* “It is very difficult for us to take stock of the fact that the localization of the personality, of the conscious mind, inside the body is only symbolic, just an aid for practical use.” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://www.organism.earth/library/document/mind-and-matter)
+* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
 
-* “Mind is first. Consciousness exists independently of brain activity. It does not depend upon the brain for its survival. The brain is not the creator of the mind, it is an antenna/receiver for the mind." - [Gary Schwartz, psychologist](https://imgur.com/5yj3uUL)
+* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
 
-* "Matter is not that which produces consciousness, but that which limits it and confines its intensity within certain limits.” - [F. C. S. Schiller, philosopher](https://archive.org/details/riddlesofsphinx00schiuoft/page/n6)
+* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
 
-* “As a neurosurgeon, I was taught that the brain creates consciousness…The truth is that the more we come to understand the physical brain, the more we realize it does not create consciousness at all. ***We are conscious in spite of our brain.*** The brain serves more as a reducing valve or filter, limiting pre-existing consciousness..." - [Eben Alexander, neurosurgeon](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6170087/)
+* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
 
-* "The idea that a consciousness can exist and make memories independent of the brain … is a startling finding." - Dr. Allan Hamilton, Harvard Ph.D. (Commenting on a patient’s detailed memories that occurred when they had *[no brain activity.](https://youtu.be/rlfYnuNR3lI?t=111)*)
+* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
 
-* Neuropsychologist Karl Lashley wanted to understand where memories are stored in the brain. To do this, he trained rats to do tasks for food. Once they learned the task, he systematically destroyed one part of their brain at a time. Miraculously, ***[the rats could still perform the tasks](https://i.imgur.com/U5Ophyh.png)*** regardless of which part of the brain was destroyed. This test was also successful with both [*monkeys*](https://i.imgur.com/KS61wjr.png), [*salamanders*](http://www.instinct.org/texts/shufflebrain/shufflebrain-book05.html) and has been naturally [*observed in humans.*](https://imgur.com/MRLQFEL)
+* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - Plotinus, Enneads, 204-270 AD.
+
+* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
+
+* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
+
+* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
 
 ***
 
