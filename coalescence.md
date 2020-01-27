@@ -100,7 +100,7 @@
 
 * *“There is only one truth, only men describe it in different ways.”* - [Rig-Veda](https://imgur.com/OED2lmd)
 
-* "No one can study ancient philosophies seriously without perceiving the striking similitude of conception between all. The result of no mere coincidence, but of a *concurrent design:* and that there was, during the youth of mankind, ***one language, one knowledge, one universal religion, when there were no churches, no creeds or sects..."*** [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-2-03.htm)
+* "No one can study ancient philosophies seriously without perceiving the striking similitude of conception between all. The result of no mere coincidence, but of a *concurrent design:* and that there was, during the youth of mankind, ***one language, one knowledge, one universal religion, when there were no churches, no creeds or sects..."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-2-03.htm)
 
 * "Every priest of an ancient creed was one of the Initiates, that is to say, ***he knew perfectly well that only one religion existed***, and that the cultus merely served to translate this religion to the different nations according to their particular temperaments. To anyone possessing the key, ***all these Bibles reveal the same doctrine***; but this key, which can open Esoterism, is lost by the sectarians of our Western creeds. Yet every cultus has its tradition, its book, its Bible, which teach those who know how to read them ***the unity of all creeds, in spite of the differences existing in the ritual of various countries."*** - [The Tarot of the Bohemians](http://www.sacred-texts.com/tarot/tob/index.htm)
 
