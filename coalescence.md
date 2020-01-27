@@ -144,7 +144,7 @@
 
 * "The whole of Gurmat wisdom has been summarized most beautifully into one single digit. Ik ***"Oneness"*** means everything in the whole entire creation is one thing that looks like many different things. - [Satpal Singh](https://youtu.be/pTRTtYUONgs)
 
-* ***"All flows from one source englobing and safeguarding all qualities-*** sweetness with fragrance, wine- quality and the savours of everything that may be tasted, all colours seen, everything known to touch, all that ear may hear, all melodies, every rhythm. ***For all There is heaven;*** earth is heaven, and sea heaven; and animal and plant and man; all is the heavenly content of that heaven: and the Gods in it... ***The soul which has never strayed from this love waits for no reminding from the beauty of our world... for it sees that all is put together..."*** - Plotinus, Enneads, 204-270 AD.
+* ***"All flows from one source englobing and safeguarding all qualities-*** sweetness with fragrance, wine- quality and the savours of everything that may be tasted, all colours seen, everything known to touch, all that ear may hear, all melodies, every rhythm. ***For all There is heaven;*** earth is heaven, and sea heaven; and animal and plant and man; all is the heavenly content of that heaven: and the Gods in it... ***The soul which has never strayed from this love waits for no reminding from the beauty of our world... for it sees that all is put together..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "Here forms, here colors, here the character of every part of the universe are concentrated to a ***point***; and that point is *so marvelous a thing … Oh! marvelous, O stupendous Necessity* — by thy laws thou dost compel every effect to be the direct result of its cause, by the shortest path. *These are miracles..."* - [Leonardo da Vinci](https://w.wiki/CzH)
 
@@ -174,7 +174,7 @@
 
 * "Throw yourself flat on the ground, stretched out upon Mother Earth, with certain conviction that you are one with her and she with you..." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
-* "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - Plotinus, Enneads, 204-270 AD.
+* "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
 
@@ -196,7 +196,7 @@
 
 * “Lovers don’t finally meet somewhere. They’re in each other all along.” - [Mawlana Jalal-al-Din Rumi](https://www.goodreads.com/quotes/83514)
 
-* "Dense bodies actually prevent sight; the less material the intervening substance is, the more clearly we see... ***The gods see, each singly and all as one...*** It must, no doubt, seem strange that my feelings be felt by someone else, my goodness another's too, my desire, his desire, ***all our experience shared with each other so that the very universe itself would feel whatever I felt.*** *For all is transparent, nothing dark, nothing resistant; every being is lucid to every other, in breadth and depth;* ***light runs through light. Light everywhere meets with light; since every thing contains all things in itself, and again sees all things in another."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm)
+* "Dense bodies actually prevent sight; the less material the intervening substance is, the more clearly we see... ***The gods see, each singly and all as one...*** It must, no doubt, seem strange that my feelings be felt by someone else, my goodness another's too, my desire, his desire, ***all our experience shared with each other so that the very universe itself would feel whatever I felt.*** *For all is transparent, nothing dark, nothing resistant; every being is lucid to every other, in breadth and depth;* ***light runs through light. Light everywhere meets with light; since every thing contains all things in itself, and again sees all things in another."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "The distinction between yourself and others is ***not visible*** to us. Thus, to learn is the same as to teach... *"Love"* implies a unity that is so great that we do not see each other simply as close friends, or brothers and sisters, but, ideally, ***we see one being.*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
 
@@ -280,8 +280,7 @@
 
 * "How does your mind look to your eyes? It looks like what you see out in front of you. Because all that you see out in front of you is how you feel inside your head." - [Alan Watts](https://youtu.be/B-_dtyHYwOU?t=61)
 
-* "Let a man first purify himself and then observe: ***he will see all things in an Intellectual substance, himself having become an Intellectual Kosmos...*** No doubt since knower, knowing, and known, are identical, all merges into a unity... No longer is there a spectator outside gazing on an outside spectacle; ***the clear-eyed hold the vision within themselves...*** In that Intellectual Kosmos, where all is one total, every entity that can be singled out is an intellective essence and a participant in life... ***For every real being must be in actuality not merely in potentiality..."*** - Plotinus, Enneads, 204-270 
-AD.
+* "Let a man first purify himself and then observe: ***he will see all things in an Intellectual substance, himself having become an Intellectual Kosmos...*** No doubt since knower, knowing, and known, are identical, all merges into a unity... No longer is there a spectator outside gazing on an outside spectacle; ***the clear-eyed hold the vision within themselves...*** In that Intellectual Kosmos, where all is one total, every entity that can be singled out is an intellective essence and a participant in life... ***For every real being must be in actuality not merely in potentiality..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "When the mind becomes very silent, you can clearly see that all that exists in the world are brief moments of consciousness arising together with the six sense objects. If you can make the mind very focused you see that the whole world breaks down into these small events of sight and the knowing, sound and the knowing, thought and the knowing. ***No longer are these houses, cars, bodies or even oneself. All you see are particles of consciousness as experience.*** You will see differently that consciousness is like waves, like a sea, an ocean. ***Now it is not particles but instead every sight and every sound is contained in this ocean of consciousness.*** From this perspective, there is no sense of particles at all." - [Jack Kornfield](https://imgur.com/sYAw0zf)
 
@@ -307,7 +306,7 @@ AD.
 
 * "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
 
-* "God is cause of Himself; for Himself and of Himself He is what He is, the first self, transcendently The Self. Since no other has generated Him, He is what He made Himself: He is not, therefore, as He happened to be but as He acted Himself into being. He had no need of being who brought it to be. All is always so and all is always so reproduced: therefore the reason-principles of things must lie always within the producing powers in a still more perfect form... The act of the will must be self-determined and the being self-caused; ***thus reason shows the Supreme to be its own Author..."*** - Plotinus, Enneads, 204-270 AD.
+* "God is cause of Himself; for Himself and of Himself He is what He is, the first self, transcendently The Self. Since no other has generated Him, He is what He made Himself: He is not, therefore, as He happened to be but as He acted Himself into being. He had no need of being who brought it to be. All is always so and all is always so reproduced: therefore the reason-principles of things must lie always within the producing powers in a still more perfect form... The act of the will must be self-determined and the being self-caused; ***thus reason shows the Supreme to be its own Author..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * “We are a way for the cosmos to know itself.” ― [Carl Sagan, Cosmos](https://w.wiki/Ckm)
 
@@ -349,8 +348,7 @@ AD.
 
 * "All knowledge that the world has ever received comes from the mind; the infinite library of the universe is in our own mind." - [Swami Vivekananda](https://w.wiki/CwK)
 
-* "In every entity the essential nature is the governing principle... This Soul, imparts the pattern of the Kosmos, the Ideas for which it has itself received from the Intellectual-Principle as the soul or mind of the craftsman draws upon his craft for the plan of his work." - Plotinus, Enneads, 204-270 
-AD.
+* "In every entity the essential nature is the governing principle... This Soul, imparts the pattern of the Kosmos, the Ideas for which it has itself received from the Intellectual-Principle as the soul or mind of the craftsman draws upon his craft for the plan of his work." - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * “There is one mind common to all individual men. What Plato has thought, he may think; what a saint has felt, he may feel; what at any time has befallen any man, he can understand. Who hath access to this universal mind is a party to all that is or can be done.” - [Ralph Waldo Emerson](https://imgur.com/0LmC7Zw)
 
@@ -382,7 +380,7 @@ AD.
 
 * [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
 
-* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - Plotinus, Enneads, 204-270 AD.
+* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
 
@@ -402,7 +400,7 @@ AD.
 
 * “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
 
-* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - Plotinus, Enneads, 204-270 AD.
+* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
 
@@ -418,7 +416,7 @@ AD.
 
 * "All truth is *eternal.* Truth is nobody’s property; no race, no individual can lay any exclusive claim to it. Truth is the nature of all souls. - [Swami Vivekananda](https://w.wiki/CwK) 
 
-* ***"Eternity means Ever-Being. Eternity is an unchanging unity.*** Neither coming to be nor passing away. Absolutely One, it has never known measure and stands outside of number... And having no constituent parts it accepts no pattern, forms no shape. Changelessly motionless and ever holding the Universal content in actual. presence. All its content is in immediate concentration as at one point; nothing in it ever knows development: all remains identical within itself, ***knowing nothing of change.*** That which neither has been nor will be, but simply possesses being; that which enjoys stable existence as neither in process of change nor having ever changed- that is Eternity. ***Being itself could not make such an opposite into Being..."*** - Plotinus, Enneads, 204-270 AD.
+* ***"Eternity means Ever-Being. Eternity is an unchanging unity.*** Neither coming to be nor passing away. Absolutely One, it has never known measure and stands outside of number... And having no constituent parts it accepts no pattern, forms no shape. Changelessly motionless and ever holding the Universal content in actual. presence. All its content is in immediate concentration as at one point; nothing in it ever knows development: all remains identical within itself, ***knowing nothing of change.*** That which neither has been nor will be, but simply possesses being; that which enjoys stable existence as neither in process of change nor having ever changed- that is Eternity. ***Being itself could not make such an opposite into Being..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * The philosophy of [Sankara](https://w.wiki/CmD) states [Brahman](https://w.wiki/CmE) (Ultimate Reality) alone is real; the world is non-real, and the [The Ātman](https://w.wiki/CmF) (Self) is essentially not-different from Brahman. 
 
@@ -434,8 +432,7 @@ AD.
 
 * "There is really no before and after for the mind. There is only now that includes memories and expectations. I believe this strongly suggests the indestructibility of Mind...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://imgur.com/vUiBH05)
 
-* "Either life is Essential Reality, and therefore self-living- the very thing we have been seeking- ***and undeniably immortal:*** or it, too, is a compound and must be traced back through all the constituents until an immortal substance is reached, something deriving movement from itself, ***and therefore debarred from accepting death."*** - Plotinus, Enneads, 204-270 
-AD.
+* "Either life is Essential Reality, and therefore self-living- the very thing we have been seeking- ***and undeniably immortal:*** or it, too, is a compound and must be traced back through all the constituents until an immortal substance is reached, something deriving movement from itself, ***and therefore debarred from accepting death."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "Physical death does not entail the end of consciousness, for consciousness is the fabric of all existence." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/oRmzURk)
 
@@ -457,8 +454,7 @@ AD.
 
 * "We may be about to rediscover that dying is not such a bad thing to do after all." - [Sir William Osler, physician](https://imgur.com/8dB7GnP)
 
-* "Men directing their weapons against each other- under doom of death yet neatly lined up to fight as in the pyrrhic sword-dances of their sport- this is enough to tell us that all human intentions are but play, ***that death is nothing terrible,*** that to die in a war or in a fight is but to taste a little beforehand what old age has in store, ***to go away earlier and come back the sooner."*** - Plotinus, Enneads, 204-270 
-AD.
+* "Men directing their weapons against each other- under doom of death yet neatly lined up to fight as in the pyrrhic sword-dances of their sport- this is enough to tell us that all human intentions are but play, ***that death is nothing terrible,*** that to die in a war or in a fight is but to taste a little beforehand what old age has in store, ***to go away earlier and come back the sooner."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * *"Life is a beautiful, magnificent thing, even to a jellyfish...* The trouble is you won't fight. You've given in, continually dwelling on sickness and death. But there's something just as inevitable as death, and that's life. ***Life, life, life.*** Think of all the power that's in the universe, moving the earth, growing the trees. That's the same power within you if you only have the courage and the will to use it." - [Charlie Chaplin](https://youtu.be/LEX0v-jOLHA)
 
