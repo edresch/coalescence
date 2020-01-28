@@ -1,5 +1,7 @@
 * *"In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?"* - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
 
+* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
+
 ***
 
 ### Energy
@@ -70,8 +72,6 @@
 
 * *"The infinitely far-away is not only near, but it is infinitely near."* - [Edward Conze, Buddhist linguist](https://imgur.com/jlvewBA)
 
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
-
 * "There is no empty space. When we go *down - down - down* - there is vibrations - stuff popping - invisible connections - ***entanglement."*** - [Fred Alan Wolf, theoretical physicist](https://imgur.com/r5NuS1w)
 
 * [Quantum entanglement](https://w.wiki/DEw) is a label for when particles cannot be described independently of the state of the others, even when separated by a large distance. The term was coined by Nobel Prize-winning physicist Erwin Schrödinger who stated - *“I would not call it one but rather the characteristic trait of quantum mechanics.”*
@@ -136,7 +136,7 @@
 
 * “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
 
-* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
 
 ***
 
