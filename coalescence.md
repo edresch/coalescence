@@ -132,7 +132,7 @@
 
 * “Basically, everything is one. There is no way in which you draw a line between things. What we do is make these subdivisions, but they’re *not real.* I think maybe poets … have some understanding of this.” - [Barbara McClintock, Nobel Prize-Winning physiologist](https://imgur.com/yZWAwKE)
 
-* Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all. - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
+* "Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
 * And I think [the sages] point to the same depth in you, and in me, and in all of us. I think they are plugged into the All…. ***Your identity is indeed the All,*** and you are no longer part of that stream, you are that stream, with the All unfolding not around you but in you. - [Ken Wilber, A Brief History of Everything](https://www.goodreads.com/book/show/40363634)
 
