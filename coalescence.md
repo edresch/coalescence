@@ -30,42 +30,6 @@
 
 ***
 
-### Simultaneity
-
-* *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
-
-* According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
-
-* “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
-
-* "[The specious present](https://en.wikipedia.org/wiki/Specious_present) consists of three nonentities—the past, which does not exist, the future, which does not exist, and their conterminous, the present; the faculty from which it proceeds lies to us in the fiction of the specious present." - E. Robert Kelly
-
-* “Past and future are myths: stories of the mind. You cannot escape the present; ever; not even theoretically." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/4L4nv51)
-
-* "Only the present day and present moment are real." - [Hasidic master Rabbi Nachman](https://w.wiki/CwJ)
-
-* "The present is the future’s past, and is therefore what has already occurred on the way to a (now) pre-existing future fulfillment. . . . It is the future that is doing the creating of a past congruent with itself and it is the present that chooses itself to be congruently the past of a particular future.” - [Carl Buchheit, Ph.D.](https://imgur.com/vRy7hmo)
-
-* "Imagine the Earth devoid of human life. Would it still have a past and a future? Could we still speak of time in any meaningful way? The question "What time is it?" or "What's the date today?" The oak tree or the eagle would be bemused by such a question. "What time?" they would ask. ***"Well, of course, it's now. The time is now. What else is there?"*** - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708.The_Power_of_Now)
-
-* ***"There is nothing peculiar in the present event to make it different from the past and future.*** For a moment the past was actual and the future will become so. What makes the present so different? A thing focused in the now is with me, for I am ever-present; it is my own reality that I impart to the present event. We consider memories, only when they come into the present. The forgotten is not counted until one is reminded -- which implies, ***bringing into the now."*** - [Sri Nisargadatta Maharaj, I Am That](http://www.prahlad.org/gallery/nisargadatta/I_Am_That.pdf)
-
-* “The experience of ‘there’ takes place here, just as the experience of the past or future takes place now. It is not possible to leave ‘here’ and visit ‘there.’ ‘There’ is always a concept, never an experience. Space is the distance between the point ‘here’ and the point ‘there,’ or between two points ‘there.’ However, only here is experienced. We are not moving through time and space. Time and space are, as it were, moving through us. I never go anywhere. ***I am always in the same place of ‘I am,’ the placeless place called here, the timeless time called now.”*** - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905-the-nature-of-consciousness)
-
-* “Ultimately all the moments are really one, … therefore now is eternity…. Everything, including me, is dying every moment into eternity and being born again.” - [David Bohm, physicist](http://www.fdavidpeat.com/interviews/bohm.htm) 
-
-* "So far as we know, animals do not live in constant anxiety about sickness and death, as we do, ***because they live in [the present.](https://www.quora.com/How-do-insects-experience-time)*** There was never a time when the world began, because it goes round and round like a circle, and there is no place on a circle where it begins. There was no past. ***If the universe began in the past, when that happened it was now.*** But it is still now and the universe is still beginning now and it’s trailing off like the wake of a ship from now and as the wake of the ship fades out, so does the past. You can look back there to explain things but the explanation disappears. You will never find it there. Things are not explained by the past. They’re explained by what happens now." - [Alan Watts](https://www.youtube.com/watch?v=MVVk67UZMJ0)
-
-* "The past, present, and future all exist in the universal hologram simultaneously." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
-
-* “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
-
-* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
-
-***
-
 ### Unity
 
 * *“There is only one truth, only men describe it in different ways.”* - [Rig-Veda](https://imgur.com/OED2lmd)
@@ -95,36 +59,6 @@
 * "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * “And all the books you've read have been read by other people. And all the songs you've loved have been heard by other people. And that girl that's pretty to you is pretty to other people. And that if you looked at these facts when you were happy, ***you would feel great because you are describing 'unity***.” - [Stephen Chbosky](https://www.goodreads.com/quotes/9625-and-all-the-books-you-ve-read-have-been-read-by)
-
-***
-
-### Entanglement
-
-* *"The infinitely far-away is not only near, but it is infinitely near."* - [Edward Conze, Buddhist linguist](https://imgur.com/jlvewBA)
-
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
-
-* "There is no empty space. When we go *down - down - down* - there is vibrations - stuff popping - invisible connections - ***entanglement."*** - [Fred Alan Wolf, theoretical physicist](https://imgur.com/r5NuS1w)
-
-* [Quantum entanglement](https://w.wiki/DEw) is a label for when particles cannot be described independently of the state of the others, even when separated by a large distance. The term was coined by Nobel Prize-winning physicist Erwin Schrödinger who stated - *“I would not call it one but rather the characteristic trait of quantum mechanics.”*
-
-* "Entanglement can occur in large systems as well as warm ones—[*including living organisms.*](https://www.scientificamerican.com/article/schroedingers-bacterium-could-be-a-quantum-biology-milestone/) We can’t simply write quantum effects off as mere details. The entanglements are primary." - [Vlatko Vedral, Oxford physicist](https://youtu.be/8NrecEP5dtM)
-
-* "According to the [Big Bang Theory](https://i.imgur.com/A2C6Vpc.jpg), all the matter in the universe was originally in contact, concentrated in a *“[very hot dot](https://w.wiki/EvA)”* of matter-energy that exploded resulting in the universe. If the theory is valid, a requirement for [non-local connection](https://w.wiki/FDG) was met early on." - [Larry Dossey, One Mind](https://www.goodreads.com/book/show/17381613) 
-
-* "A non-local connection links up one location with another without crossing space, without decay, and without delay." - [Nick Herbert, physicist](https://imgur.com/SS6v6i3) 
-
-* "Universal non-locality offers us profound evidence that our Universe is fundamentally interconnected as a unified entity." - [Jude Currivan, cosmologist](https://imgur.com/wG8b0RA)
-
-* “We live in a highly entangled, interconnected universe where a fundamental information field is shared to generate organized matter and eventually self-organizing systems, leading to organisms reflecting back on themselves and asking fundamental questions about existence." - [Nassim Haramein, physicist](https://imgur.com/xAP3VoG)
-
-* "Inseparable quantum interconnectedness of the whole universe is the fundamental reality..." - [David Bohm, theoretical physicist](https://w.wiki/CmH)
-
-* "In principle, any objects that have ever interacted are forever entangled, and therefore what happens to one influences the other. Quantum theory has this connectedness extending over the entire universe." - [Rosenblum/Kuttner, physicists](https://www.goodreads.com/book/show/100027)
-
-* "Reality is woven from strange, “holistic” threads that aren’t located precisely in space or time. Tug on a dangling loose end from this fabric of reality, and the whole cloth twitches, instantly, throughout all space and time." - [Dean Radin, Senior Scientist at IONS](https://www.goodreads.com/book/show/216543)
-
-* "The entangled objects somehow communicate instantaneously at a distance. Distance has no meaning. Light-years have no meaning. Space has no meaning. In a sense, the entangled objects are not even communicating. They are the same thing. ***All is one."*** - [Roger Ebert](https://w.wiki/DSo)
 
 ***
 
@@ -177,6 +111,72 @@
 * "Throw yourself flat on the ground, stretched out upon Mother Earth, with certain conviction that you are one with her and she with you..." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
 * "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
+
+***
+
+### Entanglement
+
+* *"The infinitely far-away is not only near, but it is infinitely near."* - [Edward Conze, Buddhist linguist](https://imgur.com/jlvewBA)
+
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
+
+* "There is no empty space. When we go *down - down - down* - there is vibrations - stuff popping - invisible connections - ***entanglement."*** - [Fred Alan Wolf, theoretical physicist](https://imgur.com/r5NuS1w)
+
+* [Quantum entanglement](https://w.wiki/DEw) is a label for when particles cannot be described independently of the state of the others, even when separated by a large distance. The term was coined by Nobel Prize-winning physicist Erwin Schrödinger who stated - *“I would not call it one but rather the characteristic trait of quantum mechanics.”*
+
+* "Entanglement can occur in large systems as well as warm ones—[*including living organisms.*](https://www.scientificamerican.com/article/schroedingers-bacterium-could-be-a-quantum-biology-milestone/) We can’t simply write quantum effects off as mere details. The entanglements are primary." - [Vlatko Vedral, Oxford physicist](https://youtu.be/8NrecEP5dtM)
+
+* "According to the [Big Bang Theory](https://i.imgur.com/A2C6Vpc.jpg), all the matter in the universe was originally in contact, concentrated in a *“[very hot dot](https://w.wiki/EvA)”* of matter-energy that exploded resulting in the universe. If the theory is valid, a requirement for [non-local connection](https://w.wiki/FDG) was met early on." - [Larry Dossey, One Mind](https://www.goodreads.com/book/show/17381613) 
+
+* "A non-local connection links up one location with another without crossing space, without decay, and without delay." - [Nick Herbert, physicist](https://imgur.com/SS6v6i3) 
+
+* "Universal non-locality offers us profound evidence that our Universe is fundamentally interconnected as a unified entity." - [Jude Currivan, cosmologist](https://imgur.com/wG8b0RA)
+
+* “We live in a highly entangled, interconnected universe where a fundamental information field is shared to generate organized matter and eventually self-organizing systems, leading to organisms reflecting back on themselves and asking fundamental questions about existence." - [Nassim Haramein, physicist](https://imgur.com/xAP3VoG)
+
+* "Inseparable quantum interconnectedness of the whole universe is the fundamental reality..." - [David Bohm, theoretical physicist](https://w.wiki/CmH)
+
+* "In principle, any objects that have ever interacted are forever entangled, and therefore what happens to one influences the other. Quantum theory has this connectedness extending over the entire universe." - [Rosenblum/Kuttner, physicists](https://www.goodreads.com/book/show/100027)
+
+* "Reality is woven from strange, “holistic” threads that aren’t located precisely in space or time. Tug on a dangling loose end from this fabric of reality, and the whole cloth twitches, instantly, throughout all space and time." - [Dean Radin, Senior Scientist at IONS](https://www.goodreads.com/book/show/216543)
+
+* "The entangled objects somehow communicate instantaneously at a distance. Distance has no meaning. Light-years have no meaning. Space has no meaning. In a sense, the entangled objects are not even communicating. They are the same thing. ***All is one."*** - [Roger Ebert](https://w.wiki/DSo)
+
+***
+
+### Simultaneity
+
+* *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
+
+* According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
+
+* “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
+
+* "[The specious present](https://en.wikipedia.org/wiki/Specious_present) consists of three nonentities—the past, which does not exist, the future, which does not exist, and their conterminous, the present; the faculty from which it proceeds lies to us in the fiction of the specious present." - E. Robert Kelly
+
+* “Past and future are myths: stories of the mind. You cannot escape the present; ever; not even theoretically." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/4L4nv51)
+
+* "Only the present day and present moment are real." - [Hasidic master Rabbi Nachman](https://w.wiki/CwJ)
+
+* "The present is the future’s past, and is therefore what has already occurred on the way to a (now) pre-existing future fulfillment. . . . It is the future that is doing the creating of a past congruent with itself and it is the present that chooses itself to be congruently the past of a particular future.” - [Carl Buchheit, Ph.D.](https://imgur.com/vRy7hmo)
+
+* "Imagine the Earth devoid of human life. Would it still have a past and a future? Could we still speak of time in any meaningful way? The question "What time is it?" or "What's the date today?" The oak tree or the eagle would be bemused by such a question. "What time?" they would ask. ***"Well, of course, it's now. The time is now. What else is there?"*** - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708.The_Power_of_Now)
+
+* ***"There is nothing peculiar in the present event to make it different from the past and future.*** For a moment the past was actual and the future will become so. What makes the present so different? A thing focused in the now is with me, for I am ever-present; it is my own reality that I impart to the present event. We consider memories, only when they come into the present. The forgotten is not counted until one is reminded -- which implies, ***bringing into the now."*** - [Sri Nisargadatta Maharaj, I Am That](http://www.prahlad.org/gallery/nisargadatta/I_Am_That.pdf)
+
+* “The experience of ‘there’ takes place here, just as the experience of the past or future takes place now. It is not possible to leave ‘here’ and visit ‘there.’ ‘There’ is always a concept, never an experience. Space is the distance between the point ‘here’ and the point ‘there,’ or between two points ‘there.’ However, only here is experienced. We are not moving through time and space. Time and space are, as it were, moving through us. I never go anywhere. ***I am always in the same place of ‘I am,’ the placeless place called here, the timeless time called now.”*** - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905-the-nature-of-consciousness)
+
+* “Ultimately all the moments are really one, … therefore now is eternity…. Everything, including me, is dying every moment into eternity and being born again.” - [David Bohm, physicist](http://www.fdavidpeat.com/interviews/bohm.htm) 
+
+* "So far as we know, animals do not live in constant anxiety about sickness and death, as we do, ***because they live in [the present.](https://www.quora.com/How-do-insects-experience-time)*** There was never a time when the world began, because it goes round and round like a circle, and there is no place on a circle where it begins. There was no past. ***If the universe began in the past, when that happened it was now.*** But it is still now and the universe is still beginning now and it’s trailing off like the wake of a ship from now and as the wake of the ship fades out, so does the past. You can look back there to explain things but the explanation disappears. You will never find it there. Things are not explained by the past. They’re explained by what happens now." - [Alan Watts](https://www.youtube.com/watch?v=MVVk67UZMJ0)
+
+* "The past, present, and future all exist in the universal hologram simultaneously." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
+
+* “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
+
+* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
 
 ***
 
