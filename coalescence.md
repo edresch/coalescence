@@ -298,6 +298,38 @@
 
 ***
 
+### Collective Unconscious
+
+* *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
+
+* “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
+
+* [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
+
+* "No self is of itself alone. It has a long chain of intellectual ancestors. The "I" is chained to ancestry by many factors … This is not mere allegory, but an eternal memory." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
+
+* “People say I have created things. I have never created anything. I get impressions from the Universe at large and work them out, but I am only a plate on a record or a receiving apparatus—what you will. Thoughts are really impressions that we get from outside.” - [Thomas Edison](https://imgur.com/C9YzCiK)
+
+* "All knowledge that the world has ever received comes from the mind; the infinite library of the universe is in our own mind." - [Swami Vivekananda](https://w.wiki/CwK)
+
+* "In every entity the essential nature is the governing principle... This Soul, imparts the pattern of the Kosmos, the Ideas for which it has itself received from the Intellectual-Principle as the soul or mind of the craftsman draws upon his craft for the plan of his work." - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* “There is one mind common to all individual men. What Plato has thought, he may think; what a saint has felt, he may feel; what at any time has befallen any man, he can understand. Who hath access to this universal mind is a party to all that is or can be done.” - [Ralph Waldo Emerson](https://imgur.com/0LmC7Zw)
+
+* “Like a hologram, each region of space-time contains information about every other point in space-time. This information is readily available to our awareness. In the holographic universe … there is a unity of consciousness—***a ‘greater collective mind’***—with no boundaries of space or time.” - [Russell Targ, physicist](https://imgur.com/TqE2Z5r)
+
+* “In any great discovery we find the often disturbing and happy experience: ‘It is not I; I have not done this.’ Still, in a certain way it is I—yet not the ego … but … a more comprehensive self." - [Baron Carl Friedrich von Weizsäcker, physicist/philosopher](https://imgur.com/VeXdOXN)
+
+* ***"I think that there may well be a flow of pattern which crosses species lines and allows organisms to borrow each other’s ideas…*** As a biologist, I am aware at times—especially when steeped in some natural cycle—of a kind of consciousness that is timeless, unlimited by space or by the confines of my own identity. I find myself, at these times, ***with knowledge that comes directly from being part of something very much larger, a sort of global ecology of mind.*** *And the experience of it is literally wonderful."* - [Lyall Watson, biologist](https://imgur.com/FtGIS3f)
+
+* “I'm not entirely closed to the possibility that there is some link to a universal knowledge.…It seems like savants, especially autistic savants, know so many things they haven’t learned, and it’s almost as if they tapped into a ***universal knowledge.”*** - [Dr. Darold Treffert, psychiatry professor](https://www.eldontaylor.com/provocativeenlightenment/2017-0810-islands-of-genius-with-darold-a-treffert-m-d/)
+
+* In 2016 the CIA [released results](https://www.cia.gov/library/readingroom/docs/CIA-RDP79-00999A000300030027-0.pdf) of studies conducted on Israeli psychic Uri Geller. ***Geller successfully described and [drew pictures](https://imgur.com/kXcSWAC) that were outside of a shielded room.*** It's stated - *"As a result of Geller's success in this experimental period, we consider that he has demonstrated his perceptual ability in a convincing and unambiguous manner."*
+
+* "The particular holographic type of consciousness, situated in the particular event horizons as a sort of bordering memory domains, can effectively function as a nested information workspace, that in humans is instrumental in constructing a mental model of reality for internal use in each individual, ***thus functioning as a global reference system. We propose this can be readily explained by a holographic memory space that contains the total history and future probability states of the particular cell..."*** - [Dirk K.F. Meijer, Conscious Universe](https://www.researchgate.net/publication/320267484)
+
+***
+
 ### Consciousness
 
 * *"[Consciousness](https://imgur.com/JxX7RFX) is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
@@ -375,38 +407,6 @@
 * "The idea that a consciousness can exist and make memories independent of the brain … is a startling finding." - Dr. Allan Hamilton, Harvard Ph.D. (Commenting on a patient’s detailed memories that occurred when they had *[no brain activity.](https://youtu.be/rlfYnuNR3lI?t=111)*)
 
 * Neuropsychologist Karl Lashley wanted to understand where memories are stored in the brain. To do this, he trained rats to do tasks for food. Once they learned the task, he systematically destroyed one part of their brain at a time. Miraculously, ***[the rats could still perform the tasks](https://i.imgur.com/U5Ophyh.png)*** regardless of which part of the brain was destroyed. This test was also successful with both [*monkeys*](https://i.imgur.com/KS61wjr.png), [*salamanders*](http://www.instinct.org/texts/shufflebrain/shufflebrain-book05.html) and has been naturally [*observed in humans.*](https://imgur.com/MRLQFEL)
-
-***
-
-### Collective Unconscious
-
-* *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
-
-* “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
-
-* [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
-
-* "No self is of itself alone. It has a long chain of intellectual ancestors. The "I" is chained to ancestry by many factors … This is not mere allegory, but an eternal memory." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
-
-* “People say I have created things. I have never created anything. I get impressions from the Universe at large and work them out, but I am only a plate on a record or a receiving apparatus—what you will. Thoughts are really impressions that we get from outside.” - [Thomas Edison](https://imgur.com/C9YzCiK)
-
-* "All knowledge that the world has ever received comes from the mind; the infinite library of the universe is in our own mind." - [Swami Vivekananda](https://w.wiki/CwK)
-
-* "In every entity the essential nature is the governing principle... This Soul, imparts the pattern of the Kosmos, the Ideas for which it has itself received from the Intellectual-Principle as the soul or mind of the craftsman draws upon his craft for the plan of his work." - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* “There is one mind common to all individual men. What Plato has thought, he may think; what a saint has felt, he may feel; what at any time has befallen any man, he can understand. Who hath access to this universal mind is a party to all that is or can be done.” - [Ralph Waldo Emerson](https://imgur.com/0LmC7Zw)
-
-* “Like a hologram, each region of space-time contains information about every other point in space-time. This information is readily available to our awareness. In the holographic universe … there is a unity of consciousness—***a ‘greater collective mind’***—with no boundaries of space or time.” - [Russell Targ, physicist](https://imgur.com/TqE2Z5r)
-
-* “In any great discovery we find the often disturbing and happy experience: ‘It is not I; I have not done this.’ Still, in a certain way it is I—yet not the ego … but … a more comprehensive self." - [Baron Carl Friedrich von Weizsäcker, physicist/philosopher](https://imgur.com/VeXdOXN)
-
-* ***"I think that there may well be a flow of pattern which crosses species lines and allows organisms to borrow each other’s ideas…*** As a biologist, I am aware at times—especially when steeped in some natural cycle—of a kind of consciousness that is timeless, unlimited by space or by the confines of my own identity. I find myself, at these times, ***with knowledge that comes directly from being part of something very much larger, a sort of global ecology of mind.*** *And the experience of it is literally wonderful."* - [Lyall Watson, biologist](https://imgur.com/FtGIS3f)
-
-* “I'm not entirely closed to the possibility that there is some link to a universal knowledge.…It seems like savants, especially autistic savants, know so many things they haven’t learned, and it’s almost as if they tapped into a ***universal knowledge.”*** - [Dr. Darold Treffert, psychiatry professor](https://www.eldontaylor.com/provocativeenlightenment/2017-0810-islands-of-genius-with-darold-a-treffert-m-d/)
-
-* In 2016 the CIA [released results](https://www.cia.gov/library/readingroom/docs/CIA-RDP79-00999A000300030027-0.pdf) of studies conducted on Israeli psychic Uri Geller. ***Geller successfully described and [drew pictures](https://imgur.com/kXcSWAC) that were outside of a shielded room.*** It's stated - *"As a result of Geller's success in this experimental period, we consider that he has demonstrated his perceptual ability in a convincing and unambiguous manner."*
-
-* "The particular holographic type of consciousness, situated in the particular event horizons as a sort of bordering memory domains, can effectively function as a nested information workspace, that in humans is instrumental in constructing a mental model of reality for internal use in each individual, ***thus functioning as a global reference system. We propose this can be readily explained by a holographic memory space that contains the total history and future probability states of the particular cell..."*** - [Dirk K.F. Meijer, Conscious Universe](https://www.researchgate.net/publication/320267484)
 
 ***
 
