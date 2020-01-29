@@ -224,6 +224,50 @@
 
 ***
 
+### Oneness
+
+* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
+
+* "Nature by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
+
+* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
+
+* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
+
+* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
+
+* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
+
+* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
+
+* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
+
+* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
+
+* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
+
+* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
+
+* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
+
+* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
+
+* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
+
+* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
+
+* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
+
+* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
+
+* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
+
+***
+
 ### Selflessness
 
 * *“Events happen, deeds are done, but there is no individual doer thereof.”* - Buddha
@@ -363,50 +407,6 @@
 * In 2016 the CIA [released results](https://www.cia.gov/library/readingroom/docs/CIA-RDP79-00999A000300030027-0.pdf) of studies conducted on Israeli psychic Uri Geller. ***Geller successfully described and [drew pictures](https://imgur.com/kXcSWAC) that were outside of a shielded room.*** It's stated - *"As a result of Geller's success in this experimental period, we consider that he has demonstrated his perceptual ability in a convincing and unambiguous manner."*
 
 * "The particular holographic type of consciousness, situated in the particular event horizons as a sort of bordering memory domains, can effectively function as a nested information workspace, that in humans is instrumental in constructing a mental model of reality for internal use in each individual, ***thus functioning as a global reference system. We propose this can be readily explained by a holographic memory space that contains the total history and future probability states of the particular cell..."*** - [Dirk K.F. Meijer, Conscious Universe](https://www.researchgate.net/publication/320267484)
-
-***
-
-### Oneness
-
-* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
-
-* "Nature by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
-
-* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
-
-* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
-
-* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
-
-* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
-
-* "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
-
-* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
-
-* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
-
-* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
-
-* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
-
-* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
-
-* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
-
-* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
-
-* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
-
-* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle."* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
-
-* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
-
-* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
 
 ***
 
