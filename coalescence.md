@@ -1,6 +1,6 @@
 * *"In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?"* - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
 
-* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
 
 ***
 
@@ -168,7 +168,7 @@
 
 * “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
 
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
+* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
 
 ***
 
