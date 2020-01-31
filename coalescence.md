@@ -1,9 +1,3 @@
-* *"In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?"* - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
-
-* *"All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..."* - [Francis Thompson](https://imgur.com/2O2eE8z)
-
-***
-
 ### Energy
 
 * *"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration."* - [Nikola Tesla](https://imgur.com/Qv9p5IF)
@@ -101,6 +95,8 @@
 * “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
 
 * [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
+
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
 
 ***
 
@@ -280,6 +276,8 @@
 * "[It from Bit](https://w.wiki/CwH) symbolizes the idea that every item of the physical world has at bottom — at a very deep bottom, in most instances — an immaterial source and explanation; that what we call reality arises in the last analysis from the posing of yes-no questions and the registering of equipment-evoked responses; in short, that all things physical are information-theoretic in origin and this is a ***participatory universe.***" - [John Archibald Wheeler, theoretical physicist](https://cqi.inf.usi.ch/qic/wheeler.pdf)
 
 * "When you sense and perceive of yourself, where do those sensations and perceptions occur? They occur here in your field of consciousness. They are nothing but modulations of consciousness. They are made of consciousness. ***Your body is made of consciousness. Your body exists in your mind."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
+
+* "In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?" - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
 
 * "What was it like to wake up after having never gone to sleep? That was when you were born. You didn't come into this world, you came out of it. You are something the whole universe is doing in the same way that a wave is something that the whole ocean is doing." - [Alan Watts](https://genius.com/Alan-watts-the-real-you-annotated)
 
