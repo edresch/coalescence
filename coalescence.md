@@ -54,52 +54,6 @@
 
 ***
 
-### Illusory Separation 
-
-* *"Devoid of space / Is the mind of grace."* - [Jack Kerouac](https://imgur.com/PuClHTX)
-
-* “A human being is part of the whole, called by us ‘universe,’ a part limited in time and space. He experiences his thoughts and feelings as something separate from the rest—a kind of optical delusion of his consciousness." - [Albert Einstein](https://www.goodreads.com/quotes/369)
-
-* "The hours by the window had filled me with a direct certainty that time, space and causality, that the isolation, separateness and spatio-temporal limitations of the self were merely optical illusions…" - [Arthur Koestler, Sonning Prize Winner](https://imgur.com/GfwLqgz)
-
-* German philosopher [Arthur Schopenhauer](https://w.wiki/DEx) believed that humans risk their lives for another because the rescuer realizes that he or she and the individual in need ***are one.*** He stated - *“[Universal compassion](https://news.uchicago.edu/story/helping-your-fellow-rat-rodents-show-empathy-driven-behavior) is the only guarantee of morality. My own true inner being actually exists in every living creature as truly and immediately as known to my consciousness only in myself. This realization is the ground of compassion upon which all true, that is to say unselfish, virtue rests...”*
-
-* "At the decisive moment, the sense of separation is [*totally overcome.*](https://realitysandwich.com/181095/saving_others/) The prior sense of separateness is simply a function of the way we experience things in space and time. Because we experience ourselves as one with the person in need, when we risk our life to save them, ***we are essentially saving ourselves."*** - [Larry Dossey, One Mind](https://www.goodreads.com/book/show/17381613)
-
-* "Unselfishness is God." - [Swami Vivekananda](https://w.wiki/CwK)
-
-* “Lovers don’t finally meet somewhere. They’re in each other all along.” - [Mawlana Jalal-al-Din Rumi](https://www.goodreads.com/quotes/83514)
-
-* "Dense bodies actually prevent sight; the less material the intervening substance is, the more clearly we see... ***The gods see, each singly and all as one...*** It must, no doubt, seem strange that my feelings be felt by someone else, my goodness another's too, my desire, his desire, ***all our experience shared with each other so that the very universe itself would feel whatever I felt.*** *For all is transparent, nothing dark, nothing resistant; every being is lucid to every other, in breadth and depth;* ***light runs through light. Light everywhere meets with light; since every thing contains all things in itself, and again sees all things in another."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* "The distinction between yourself and others is ***not visible*** to us. Thus, to learn is the same as to teach... *"Love"* implies a unity that is so great that we do not see each other simply as close friends, or brothers and sisters, but, ideally, ***we see one being.*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
-
-* note - Humans only see [0.0035%](http://www.madsci.org/posts/archives/2007-08/1188407794.Ph.r.html) of the [electromagnetic spectrum.](https://i.imgur.com/wEV9MoJ.jpg)
-
-* "The inner self is conscious of itself both as an individuality and as an individuality that is a part of all other consciousness. The outer ego is not continuously aware of this fact. If the ego were aware of the ***constant barrage of telepathic communications*** that do impinge upon it, it would have a most difficult time retaining a sense of identity." - [Jane Roberts, The Seth Material](https://www.goodreads.com/book/show/324424)
-
-* The word [*telepathy*](https://w.wiki/D8d) is derived from Ancient Greek "[*têle*](https://w.wiki/D8e)" (“at a distance”) and "[*páthos*](https://w.wiki/D8k)" ("I feel, suffer.”) 
-
-* In 2013, Bryan Williams reported a [meta-analysis](https://imgur.com/a/yXVsQlU) based on [59 Ganzfeld telepathy studies.](https://w.wiki/Cwr) The results had a hit rate of ***30-32%.*** It's stated - *"The psi ganzfeld effect has indeed been replicated by ‘a broader range of investigators’ under stringent standards."*
-
-* A recent [study from Princeton](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2922522/) showed that brains can become interconnected, looking at the brain [f-MRI scans](https://imgur.com/a/98Cf44S) of speaker and listener. It's stated - *"We used the speaker's spatio-temporal brain activity to model listeners’ brain activity and found that the speaker's activity is spatially and temporally coupled with the listener's activity."* This has also been shown between [parents and their babies.](https://redd.it/enb4dj)
-
-* "For years parents and therapists have reported to me that their nonverbal autistic children can access their thoughts by an unclear process. The children report they *“see the other’s mind.”* I have tested two of these children with randomized numbers. ***Hayley gave 155 correct out of 162 on random digits and Akhil was 100% accurate."*** - [Diane Powell, neuropsychiatrist](http://www.consciousness.arizona.edu/documents/TSC2017AbstractBook-final-5.10.17-final.pdf)
-
-* In a [study by Dr. Peoc’h](https://www.scientificexploration.org/docs/9/jse_09_2_peoch.pdf), newly hatched chicks were exposed to a small robot so that they could bond with it. The robot would then move randomly, as determined by a random number generator. However, when the chick was nearby, [*the robot moved non-randomly.*](https://imgur.com/a/WM2Rn7n) ***It was as if the chicks emotional desire for the robot to be nearby influenced the robot’s movement.*** It has also been shown that human consciousness and intention can affect the behavior of [random number generators](https://imgur.com/iSV0aJ0) and [water.](https://youtu.be/tAvzsjcBtx8)
-
-* "The ways are but two: love and the want of love." - [Mencius, 300 B.C.](https://w.wiki/Cu6)
-
-* “This becoming one instead of two, was the very expression of humanity’s ancient need. And the reason is that human nature was originally one and we were a whole, and the desire and pursuit of the whole is called love.” - [Plato, The Symposium, 385–370 BC.](https://w.wiki/CkG)
-
-* “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
-
-* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
-
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
-
-***
-
 ### Unity
 
 * *“There is only one truth, only men describe it in different ways.”* - [Rig-Veda](https://imgur.com/OED2lmd)
@@ -181,6 +135,52 @@
 * "Throw yourself flat on the ground, stretched out upon Mother Earth, with certain conviction that you are one with her and she with you..." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
 * "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
+
+***
+
+### Illusory Separation 
+
+* *"Devoid of space / Is the mind of grace."* - [Jack Kerouac](https://imgur.com/PuClHTX)
+
+* “A human being is part of the whole, called by us ‘universe,’ a part limited in time and space. He experiences his thoughts and feelings as something separate from the rest—a kind of optical delusion of his consciousness." - [Albert Einstein](https://www.goodreads.com/quotes/369)
+
+* "The hours by the window had filled me with a direct certainty that time, space and causality, that the isolation, separateness and spatio-temporal limitations of the self were merely optical illusions…" - [Arthur Koestler, Sonning Prize Winner](https://imgur.com/GfwLqgz)
+
+* German philosopher [Arthur Schopenhauer](https://w.wiki/DEx) believed that humans risk their lives for another because the rescuer realizes that he or she and the individual in need ***are one.*** He stated - *“[Universal compassion](https://news.uchicago.edu/story/helping-your-fellow-rat-rodents-show-empathy-driven-behavior) is the only guarantee of morality. My own true inner being actually exists in every living creature as truly and immediately as known to my consciousness only in myself. This realization is the ground of compassion upon which all true, that is to say unselfish, virtue rests...”*
+
+* "At the decisive moment, the sense of separation is [*totally overcome.*](https://realitysandwich.com/181095/saving_others/) The prior sense of separateness is simply a function of the way we experience things in space and time. Because we experience ourselves as one with the person in need, when we risk our life to save them, ***we are essentially saving ourselves."*** - [Larry Dossey, One Mind](https://www.goodreads.com/book/show/17381613)
+
+* "Unselfishness is God." - [Swami Vivekananda](https://w.wiki/CwK)
+
+* “Lovers don’t finally meet somewhere. They’re in each other all along.” - [Mawlana Jalal-al-Din Rumi](https://www.goodreads.com/quotes/83514)
+
+* "Dense bodies actually prevent sight; the less material the intervening substance is, the more clearly we see... ***The gods see, each singly and all as one...*** It must, no doubt, seem strange that my feelings be felt by someone else, my goodness another's too, my desire, his desire, ***all our experience shared with each other so that the very universe itself would feel whatever I felt.*** *For all is transparent, nothing dark, nothing resistant; every being is lucid to every other, in breadth and depth;* ***light runs through light. Light everywhere meets with light; since every thing contains all things in itself, and again sees all things in another."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* "The distinction between yourself and others is ***not visible*** to us. Thus, to learn is the same as to teach... *"Love"* implies a unity that is so great that we do not see each other simply as close friends, or brothers and sisters, but, ideally, ***we see one being.*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
+
+* note - Humans only see [0.0035%](http://www.madsci.org/posts/archives/2007-08/1188407794.Ph.r.html) of the [electromagnetic spectrum.](https://i.imgur.com/wEV9MoJ.jpg)
+
+* "The inner self is conscious of itself both as an individuality and as an individuality that is a part of all other consciousness. The outer ego is not continuously aware of this fact. If the ego were aware of the ***constant barrage of telepathic communications*** that do impinge upon it, it would have a most difficult time retaining a sense of identity." - [Jane Roberts, The Seth Material](https://www.goodreads.com/book/show/324424)
+
+* The word [*telepathy*](https://w.wiki/D8d) is derived from Ancient Greek "[*têle*](https://w.wiki/D8e)" (“at a distance”) and "[*páthos*](https://w.wiki/D8k)" ("I feel, suffer.”) 
+
+* In 2013, Bryan Williams reported a [meta-analysis](https://imgur.com/a/yXVsQlU) based on [59 Ganzfeld telepathy studies.](https://w.wiki/Cwr) The results had a hit rate of ***30-32%.*** It's stated - *"The psi ganzfeld effect has indeed been replicated by ‘a broader range of investigators’ under stringent standards."*
+
+* A recent [study from Princeton](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2922522/) showed that brains can become interconnected, looking at the brain [f-MRI scans](https://imgur.com/a/98Cf44S) of speaker and listener. It's stated - *"We used the speaker's spatio-temporal brain activity to model listeners’ brain activity and found that the speaker's activity is spatially and temporally coupled with the listener's activity."* This has also been shown between [parents and their babies.](https://redd.it/enb4dj)
+
+* "For years parents and therapists have reported to me that their nonverbal autistic children can access their thoughts by an unclear process. The children report they *“see the other’s mind.”* I have tested two of these children with randomized numbers. ***Hayley gave 155 correct out of 162 on random digits and Akhil was 100% accurate."*** - [Diane Powell, neuropsychiatrist](http://www.consciousness.arizona.edu/documents/TSC2017AbstractBook-final-5.10.17-final.pdf)
+
+* In a [study by Dr. Peoc’h](https://www.scientificexploration.org/docs/9/jse_09_2_peoch.pdf), newly hatched chicks were exposed to a small robot so that they could bond with it. The robot would then move randomly, as determined by a random number generator. However, when the chick was nearby, [*the robot moved non-randomly.*](https://imgur.com/a/WM2Rn7n) ***It was as if the chicks emotional desire for the robot to be nearby influenced the robot’s movement.*** It has also been shown that human consciousness and intention can affect the behavior of [random number generators](https://imgur.com/iSV0aJ0) and [water.](https://youtu.be/tAvzsjcBtx8)
+
+* "The ways are but two: love and the want of love." - [Mencius, 300 B.C.](https://w.wiki/Cu6)
+
+* “This becoming one instead of two, was the very expression of humanity’s ancient need. And the reason is that human nature was originally one and we were a whole, and the desire and pursuit of the whole is called love.” - [Plato, The Symposium, 385–370 BC.](https://w.wiki/CkG)
+
+* “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
+
+* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
+
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
 
 ***
 
