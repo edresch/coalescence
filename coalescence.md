@@ -122,14 +122,9 @@
 
 * "That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define the infinity as unity. ***This unity is all that there is."*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
 
-* “Above all other relationships he recognizes ***the universal brotherhood of every living thing.*** The symbol of the clasped hands, explained in the Lodge, reflects his attitude towards all the world, for he is the comrade of all created things. - [The Lost Keys of Freemasonry](https://en.wikisource.org/wiki/The_Lost_Keys_of_Freemasonry/Introduction)
-
-* "The first peace, which is most important, is that which comes within the souls of men when they realize their relationship, ***their oneness, with the universe*** and all its Powers, and when they realize that at the center of the universe dwells Wakan-Tanka, and that this center is really everywhere, it is within each of us. This is the real Peace, and the others are but reflections of this. The second peace is that which is made between two individuals, and the third is that which is made between two nations. But above all you should understand that there can never be peace between nations until there is first known that true peace which, as I have often said, is within the souls of men." - [Hehaka Sapa, Wichasha Wakan](https://en.wikiquote.org/wiki/Black_Elk)
-
 * "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * “And all the books you've read have been read by other people. And all the songs you've loved have been heard by other people. And that girl that's pretty to you is pretty to other people. And that if you looked at these facts when you were happy, ***you would feel great because you are describing 'unity***.” - [Stephen Chbosky](https://www.goodreads.com/quotes/9625-and-all-the-books-you-ve-read-have-been-read-by)
-
 
 ***
 
@@ -177,41 +172,15 @@
 
 * "God is one in Hasidic teachings means not God is one, but that ***everything is part of the divine.*** That means we're all connected. It means we're all children of God. It means we can all be here for each other. It means we're responsible for the world." - [Rabbi Yosef Yitzchak](https://youtu.be/iKd84AVZkIw?t=384)
 
+* “Above all other relationships he recognizes ***the universal brotherhood of every living thing.*** The symbol of the clasped hands, explained in the Lodge, reflects his attitude towards all the world, for he is the comrade of all created things. - [The Lost Keys of Freemasonry](https://en.wikisource.org/wiki/The_Lost_Keys_of_Freemasonry/Introduction)
+
 * "Detachment is not the absence of emotion, it is the process of **becoming one with the Oneness that is the Universe.** To be detached, is to realize that the fullness of all there is, is too much to react to with just one emotion, one thought, or any bias. To be detached, is to acknowledge all, without owning any of it. To be detached, is to summon forth the whole entirety of understanding, to the fragment that is the void." - [Justin K. McFarlane Beau](https://www.goodreads.com/quotes/1390332-detachment-is-not-the-absence-of-emotion-it-is-the)
+
+* "The first peace, which is most important, is that which comes within the souls of men when they realize their relationship, ***their oneness, with the universe*** and all its Powers, and when they realize that at the center of the universe dwells Wakan-Tanka, and that this center is really everywhere, it is within each of us. This is the real Peace, and the others are but reflections of this. The second peace is that which is made between two individuals, and the third is that which is made between two nations. But above all you should understand that there can never be peace between nations until there is first known that true peace which, as I have often said, is within the souls of men." - [Hehaka Sapa, Wichasha Wakan](https://en.wikiquote.org/wiki/Black_Elk)
 
 * "Throw yourself flat on the ground, stretched out upon Mother Earth, with certain conviction that you are one with her and she with you..." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
 * "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
-
-***
-
-### Selflessness
-
-* *“Events happen, deeds are done, but there is no individual doer thereof.”* - Buddha
-
-* “Trying to define yourself is like trying to bite your own teeth.” - [Alan Watts](https://bit.ly/2MTWUNa) 
-
-* “The true value of a human being is determined primarily by the measure and the sense in which he has attained liberation from the self." - [Albert Einstein](https://www.goodreads.com/quotes/119837)
-
-* ​"The self is fundamentally an illusion arising as a reflection of the soul in matter, much as a clear lake at midnight reflects the moon." - [Fred Alan Wolf, theoretical physicist](https://imgur.com/OAbRtib)
-
-* "***No such thing as selves exist in the world.*** At least for all conscious beings so far known to us it is true that they neither have nor are a self. Some organisms possess conscious self-models, but such self-models certainly are not selves – *they are only complex brain states.*" - [Thomas Metzinger, Being No One](https://www.philosophie.uni-mainz.de/metzinger/publikationen/precis.pdf)
-
-* "Why are you unhappy? Because nearly everything that you say and do is for your “self”—and there isn’t one." - Chinese Proverb 
-
-* "The mind in itself is not dysfunctional. It is a wonderful tool. Dysfunction sets in when you seek your self in it and mistake it for who you are." - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708)
-
-* "Just as one is free from the ideas of 'me' and 'mine' in respect of others' bodies, so, one becomes free from those ideas in respect of one's own body when one knows the Supreme Truth." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
-
-* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
-
-* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior, I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
-
-* "The wise man beholds all beings in the Self, and the Self in all beings; for that reason, he does not hate anyone." -  [Isa Upanishad](http://www.ishwar.com/hinduism/holy_upanishads/isa_upanishad/)
-
-* "We do not need a new religion or a new bible. We need a new experience--a new feeling of what it to be "I." The lowdown (which is, of course, the secret and profound view) on life is that ***our normal sensation of self is a hoax*** or, at best, a temporary role that we are playing, or have been conned into playing. If you know that "I", in the sense of the person, the front, the ego, it really doesn't exist, then it won't go to your head too badly." - [Alan Watts](https://genius.com/Alan-watts-the-book-chapter-1-lyrics)
-
-* "Establish yourself firmly in the awareness of 'I AM'. This is the beginning, and also the end of all endeavor. Give up all questions except one: ‘Who am I?’ After all, the only fact you are sure of is that you are. The ‘I am’ is certain. The ‘I am this’ is not. ***Nothing, concrete or abstract, which you perceive can be you.*** The very act of perceiving shows that you are not what you perceive. Once you are convinced that you cannot say truthfully about your self anything except ‘I am’, and ***that nothing that can be pointed at, can be your self***, the need for the ‘I am’ is over -- you are no longer intent on verbalizing what you are. All you need is to get rid of the tendency to define your self." - [Sri Nisargadatta Maharaj](https://www.nonduality.com/beyond.htm)
 
 ***
 
@@ -256,6 +225,36 @@
 * [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
 
 * [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
+
+***
+
+### Selflessness
+
+* *“Events happen, deeds are done, but there is no individual doer thereof.”* - Buddha
+
+* “Trying to define yourself is like trying to bite your own teeth.” - [Alan Watts](https://bit.ly/2MTWUNa) 
+
+* “The true value of a human being is determined primarily by the measure and the sense in which he has attained liberation from the self." - [Albert Einstein](https://www.goodreads.com/quotes/119837)
+
+* ​"The self is fundamentally an illusion arising as a reflection of the soul in matter, much as a clear lake at midnight reflects the moon." - [Fred Alan Wolf, theoretical physicist](https://imgur.com/OAbRtib)
+
+* "***No such thing as selves exist in the world.*** At least for all conscious beings so far known to us it is true that they neither have nor are a self. Some organisms possess conscious self-models, but such self-models certainly are not selves – *they are only complex brain states.*" - [Thomas Metzinger, Being No One](https://www.philosophie.uni-mainz.de/metzinger/publikationen/precis.pdf)
+
+* "Why are you unhappy? Because nearly everything that you say and do is for your “self”—and there isn’t one." - Chinese Proverb 
+
+* "The mind in itself is not dysfunctional. It is a wonderful tool. Dysfunction sets in when you seek your self in it and mistake it for who you are." - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708)
+
+* "Just as one is free from the ideas of 'me' and 'mine' in respect of others' bodies, so, one becomes free from those ideas in respect of one's own body when one knows the Supreme Truth." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
+
+* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
+
+* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior, I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
+
+* "The wise man beholds all beings in the Self, and the Self in all beings; for that reason, he does not hate anyone." -  [Isa Upanishad](http://www.ishwar.com/hinduism/holy_upanishads/isa_upanishad/)
+
+* "We do not need a new religion or a new bible. We need a new experience--a new feeling of what it to be "I." The lowdown (which is, of course, the secret and profound view) on life is that ***our normal sensation of self is a hoax*** or, at best, a temporary role that we are playing, or have been conned into playing. If you know that "I", in the sense of the person, the front, the ego, it really doesn't exist, then it won't go to your head too badly." - [Alan Watts](https://genius.com/Alan-watts-the-book-chapter-1-lyrics)
+
+* "Establish yourself firmly in the awareness of 'I AM'. This is the beginning, and also the end of all endeavor. Give up all questions except one: ‘Who am I?’ After all, the only fact you are sure of is that you are. The ‘I am’ is certain. The ‘I am this’ is not. ***Nothing, concrete or abstract, which you perceive can be you.*** The very act of perceiving shows that you are not what you perceive. Once you are convinced that you cannot say truthfully about your self anything except ‘I am’, and ***that nothing that can be pointed at, can be your self***, the need for the ‘I am’ is over -- you are no longer intent on verbalizing what you are. All you need is to get rid of the tendency to define your self." - [Sri Nisargadatta Maharaj](https://www.nonduality.com/beyond.htm)
 
 ***
 
