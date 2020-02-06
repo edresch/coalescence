@@ -308,19 +308,45 @@
 
 * "The one prevailing idea found in all ancient teaching is that the whole Kosmos has sprung from the divine thought. Everything in the Universe is conscious. Consciousness contains the cognizer, the thing cognized and the cognition, ***all three in itself and all three one."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-03.htm)
 
+* "God is cause of Himself; for Himself and of Himself He is what He is, the first self, transcendently The Self. Since no other has generated Him, He is what He made Himself: He is not, therefore, as He happened to be but as He acted Himself into being. He had no need of being who brought it to be. All is always so and all is always so reproduced: therefore the reason-principles of things must lie always within the producing powers in a still more perfect form... The act of the will must be self-determined and the being self-caused; ***thus reason shows the Supreme to be its own Author..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* “We are a way for the cosmos to know itself.” ― [Carl Sagan, Cosmos](https://w.wiki/Ckm)
+
+* "The Universe is Mental--held in the Mind of THE ALL." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
+
+* "Consciousness is the source of all reality. The entire human being, brain, consciousness and all, is like the universe which surrounds him, nothing more or less than an extraordinarily complex system of energy fields." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
+
 * "[It from Bit](https://w.wiki/CwH) symbolizes the idea that every item of the physical world has at bottom — at a very deep bottom, in most instances — an immaterial source and explanation; that what we call reality arises in the last analysis from the posing of yes-no questions and the registering of equipment-evoked responses; in short, that all things physical are information-theoretic in origin and this is a ***participatory universe.***" - [John Archibald Wheeler, theoretical physicist](https://cqi.inf.usi.ch/qic/wheeler.pdf)
+
+* “I regard consciousness as fundamental. I regard matter as derivative from consciousness.” - [Max Planck, Nobel Prize-winning physicist](https://w.wiki/DEz)
+
+* "Consciousness is much more of the implicate order than is matter . . . Yet at a deeper level [matter and consciousness] are actually inseparable and interwoven, just as in the computer game the player and the screen are united by participation." - [David Bohm, theoretical physicist](https://w.wiki/Cwg)
+
+* "According to my view of quantum theory, matter does not produce consciousness. It is the other way around. Consciousness produces material events." - [Norman Friedman, physicist](https://imgur.com/jhJH3I6)
+
+* "The universe is of the nature of a thought or sensation in a universal Mind... To put the conclusion crudely — the stuff of the world is mind-stuff." - [Arthur Eddington, astrophysicist](https://w.wiki/CwG)
+
+* “Consciousness does not exist because the physical world does; the physical world exists because consciousness does." - [Jim Tucker, Ph.D.](https://imgur.com/yE84GmL)
 
 * "When you sense and perceive of yourself, where do those sensations and perceptions occur? They occur here in your field of consciousness. They are nothing but modulations of consciousness. They are made of consciousness. ***Your body is made of consciousness. Your body exists in your mind."*** - [Mark Gober, An End to Upside Down Thinking](https://www.goodreads.com/book/show/39022157)
 
-* "In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?" - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
+* "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
 
 * "What was it like to wake up after having never gone to sleep? That was when you were born. You didn't come into this world, you came out of it. You are something the whole universe is doing in the same way that a wave is something that the whole ocean is doing." - [Alan Watts](https://genius.com/Alan-watts-the-real-you-annotated)
+
+* "In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?" - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
 
 * "Body consciousness and the world are not different; they are identical." - [Sri Nisargadatta Maharaj](http://realizedone.com/post/the-final-talks-of-sri-nisargadatta-maharaj-talk/) 
 
 * "When you make the two one, and when you make the inner as the outer and the outer as the inner and the above as the below then shall you enter the Kingdom. If those who lead you say to you, 'See, the kingdom is in the sky,' then the birds of the sky will precede you. If they say to you, 'It is in the sea,' then the fish will precede you. Rather, the kingdom is inside of you, and it is outside of you." - [The Gospel of Thomas](http://www.gnosis.org/naghamm/gthlamb.html)
 
 * "How does your mind look to your eyes? It looks like what you see out in front of you. Because all that you see out in front of you is how you feel inside your head." - [Alan Watts](https://youtu.be/B-_dtyHYwOU?t=61)
+
+* "The external world is as much you as your own body. Your skin doesn’t separate you from the world. It’s a bridge through which the external world flows into you, and you flow into it. - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
+
+* "Man is the most insane species. He worships an invisible God and destroys a visible Nature. Unaware that the Nature he is destroying is this God he is worshipping." - [Hubert Reet](https://imgur.com/R676L9R) 
+
+* ***"There are no distinctions such as the knower, the knowledge and the known.*** In the dream state, even though there is no contact with the external world, the mind alone projects the entire dream-universe of the enjoyer, etc. Similarly, the waking-state is [no different.](https://youtu.be/UfV89yz7bug) ***All this world of myriad phenomena is but a projection of the mind.*** Just as the wave, the surf, the whirlpool, the bubbles, etc. are all, in essence, nothing but water, so too, ***Consciousness alone is everything from the body, to the ego.*** - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf) 
 
 * "Salt is a simple here, and yet a manifold. This thing is therefore white only in so far as it is brought in contact with our eye, also sharp to our tongue, also cubic to our touch, etc. The entire diversity of these sides we do not receive from the thing, but from ourselves. Thus they (the sides) fall asunder on our senses which are separate from each other. ***We are therefore the universal medium in which such moments isolate themselves***, and are for and by themselves. But these different sides which consciousness takes upon itself are determined each for itself, as it is found in the universal medium; the White is merely in opposition to the Black, etc., and the thing is One precisely through the fact that it opposes itself to others. But it does not exclude others from itself through being One, ***for to be One is the universal relation to itself, and from the fact that it is One it is rather like to all."*** - [Georg Wilhelm Friedrich Hegel, The Phenomenology of Spirit](https://archive.org/stream/jstor-25665651/25665651_djvu.txt)
 
@@ -329,34 +355,6 @@
 * "When the mind becomes very silent, you can clearly see that all that exists in the world are brief moments of consciousness arising together with the six sense objects. If you can make the mind very focused you see that the whole world breaks down into these small events of sight and the knowing, sound and the knowing, thought and the knowing. ***No longer are these houses, cars, bodies or even oneself. All you see are particles of consciousness as experience.*** You will see differently that consciousness is like waves, like a sea, an ocean. ***Now it is not particles but instead every sight and every sound is contained in this ocean of consciousness.*** From this perspective, there is no sense of particles at all." - [Jack Kornfield](https://imgur.com/sYAw0zf)
 
 * *"My world is myself. I am at home.* ***You are the pure awareness that illuminates consciousness and its infinite content. Awareness is primordial;*** it is the original state, beginningless, endless, uncaused, unsupported, without parts, without change. There can be no consciousness without awareness, but there can be awareness without consciousness... ***Awareness is the common matrix of every experience."*** - [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf) 
-
-* ***"There are no distinctions such as the knower, the knowledge and the known.*** In the dream state, even though there is no contact with the external world, the mind alone projects the entire dream-universe of the enjoyer, etc. Similarly, the waking-state is [no different.](https://youtu.be/UfV89yz7bug) ***All this world of myriad phenomena is but a projection of the mind.*** Just as the wave, the surf, the whirlpool, the bubbles, etc. are all, in essence, nothing but water, so too, ***Consciousness alone is everything from the body, to the ego.*** - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf) 
-
-* "The Universe is Mental--held in the Mind of THE ALL." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb07.htm)
-
-* "According to my view of quantum theory, matter does not produce consciousness. It is the other way around. Consciousness produces material events." - [Norman Friedman, physicist](https://imgur.com/jhJH3I6)
-
-* “I regard consciousness as fundamental. I regard matter as derivative from consciousness.” - [Max Planck, Nobel Prize-winning physicist](https://w.wiki/DEz)
-
-* “Consciousness does not exist because the physical world does; the physical world exists because consciousness does." - [Jim Tucker, Ph.D.](https://imgur.com/yE84GmL)
-
-* "The universe is of the nature of a thought or sensation in a universal Mind... To put the conclusion crudely — the stuff of the world is mind-stuff." - [Arthur Eddington, astrophysicist](https://w.wiki/CwG)
-
-* "Consciousness is the source of all reality. The entire human being, brain, consciousness and all, is like the universe which surrounds him, nothing more or less than an extraordinarily complex system of energy fields." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
-
-* "Our individual mind is seen as a part of a larger universal consciousness, being instrumental in the entire fabric of reality. This is so, since the conscious activity of an observer observing the change of an observable is, per definition mathematically not computable." - [Dirk K.F. Meijer, pharmacologist, Conscious Universe](https://www.researchgate.net/publication/320267484)
-
-* "Consciousness is much more of the implicate order than is matter . . . Yet at a deeper level [matter and consciousness] are actually inseparable and interwoven, just as in the computer game the player and the screen are united by participation." - [David Bohm, theoretical physicist](https://w.wiki/Cwg)
-
-* "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
-
-* "God is cause of Himself; for Himself and of Himself He is what He is, the first self, transcendently The Self. Since no other has generated Him, He is what He made Himself: He is not, therefore, as He happened to be but as He acted Himself into being. He had no need of being who brought it to be. All is always so and all is always so reproduced: therefore the reason-principles of things must lie always within the producing powers in a still more perfect form... The act of the will must be self-determined and the being self-caused; ***thus reason shows the Supreme to be its own Author..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* “We are a way for the cosmos to know itself.” ― [Carl Sagan, Cosmos](https://w.wiki/Ckm)
-
-* "Man is the most insane species. He worships an invisible God and destroys a visible Nature. Unaware that the Nature he is destroying is this God he is worshipping." - [Hubert Reet](https://imgur.com/R676L9R) 
-
-* "The external world is as much you as your own body. Your skin doesn’t separate you from the world. It’s a bridge through which the external world flows into you, and you flow into it. - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
 
 * "Imagine that all of reality is a stream of water, where water represents consciousness. Now imagine that within the stream, whirlpools form. While they may *look different* from other parts of the stream, the whirlpools are made of nothing more than water. ***To say that the brain generates mind is as absurd as to say that a whirlpool generates water.*** - [Bernardo Kastrup, Ph.D.](https://imgur.com/jca3hDu)
 
@@ -383,6 +381,8 @@
 * “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
 
 * [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
+
+* "Our individual mind is seen as a part of a larger universal consciousness, being instrumental in the entire fabric of reality. This is so, since the conscious activity of an observer observing the change of an observable is, per definition mathematically not computable." - [Dirk K.F. Meijer, pharmacologist, Conscious Universe](https://www.researchgate.net/publication/320267484)
 
 * "No self is of itself alone. It has a long chain of intellectual ancestors. The "I" is chained to ancestry by many factors … This is not mere allegory, but an eternal memory." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
