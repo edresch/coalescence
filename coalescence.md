@@ -226,6 +226,10 @@
 
 * “Trying to define yourself is like trying to bite your own teeth.” - [Alan Watts](https://bit.ly/2MTWUNa) 
 
+* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
+
+* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior, I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
+
 * “The true value of a human being is determined primarily by the measure and the sense in which he has attained liberation from the self." - [Albert Einstein](https://www.goodreads.com/quotes/119837)
 
 * ​"The self is fundamentally an illusion arising as a reflection of the soul in matter, much as a clear lake at midnight reflects the moon." - [Fred Alan Wolf, theoretical physicist](https://imgur.com/OAbRtib)
@@ -237,10 +241,6 @@
 * "The mind in itself is not dysfunctional. It is a wonderful tool. Dysfunction sets in when you seek your self in it and mistake it for who you are." - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708)
 
 * "Just as one is free from the ideas of 'me' and 'mine' in respect of others' bodies, so, one becomes free from those ideas in respect of one's own body when one knows the Supreme Truth." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
-
-* "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
-
-* "What I’m doing at the moment is not completely described unless your being here is described also. In order to describe my behavior, I have to describe your behavior and the behavior of the environment... That what I am involves what you are. ***I don’t know who I am unless I know who you are. And you don’t know who you are unless you know who I am.*** We define each other; we’re all backs and fronts to each other. We know who we are in terms of other people; ***we all lock together."***  - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
 
 * "The wise man beholds all beings in the Self, and the Self in all beings; for that reason, he does not hate anyone." -  [Isa Upanishad](http://www.ishwar.com/hinduism/holy_upanishads/isa_upanishad/)
 
