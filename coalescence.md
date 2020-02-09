@@ -52,6 +52,8 @@
 
 * "The entangled objects somehow communicate instantaneously at a distance. Distance has no meaning. Light-years have no meaning. Space has no meaning. In a sense, the entangled objects are not even communicating. They are the same thing. ***All is one."*** - [Roger Ebert](https://w.wiki/DSo)
 
+* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
+
 ***
 
 ### Unity
@@ -196,6 +198,8 @@
 
 * note - Humans only see [0.0035%](http://www.madsci.org/posts/archives/2007-08/1188407794.Ph.r.html) of the [electromagnetic spectrum.](https://i.imgur.com/wEV9MoJ.jpg)
 
+* There once was a tiny drop of rainwater that fell from the great, rolling skies far above and into a vast run river down below. ..and became it. And yet did the raindrop retain its very identity. Yet how could this be? For it was, after all, no longer a raindrop. It was now the river. It became the awareness of the river by realizing upon entering that it and the river ***had never been apart to begin with.*** As a raindrop, however, it had lost sight of this truth and felt itself small and separated. Upon entry into the river, its identity did not become replaced by the river's - the river's identity did not obliterate the raindrops. Rather, the raindrop came to ultimately realize that its true identity had all along been much more grand, much more vast than it had ever prior given itself credit for. The raindrop is the river. - [Freeman Broiler](http://i.imgur.com/ETTzpzU.png)
+
 * "The inner self is conscious of itself both as an individuality and as an individuality that is a part of all other consciousness. The outer ego is not continuously aware of this fact. If the ego were aware of the ***constant barrage of telepathic communications*** that do impinge upon it, it would have a most difficult time retaining a sense of identity." - [Jane Roberts, The Seth Material](https://www.goodreads.com/book/show/324424)
 
 * The word [*telepathy*](https://w.wiki/D8d) is derived from Ancient Greek "[*têle*](https://w.wiki/D8e)" (“at a distance”) and "[*páthos*](https://w.wiki/D8k)" ("I feel, suffer.”) 
@@ -215,8 +219,6 @@
 * “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
 
 * [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
-
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
 
 ***
 
@@ -443,8 +445,6 @@
 * "He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
 
 * ***“Self is only an idea, a mortal idea.*** That which passes into everything is one thing. It's a dream already ended. There's nothing to be afraid of and nothing to be glad about. Mountains will crumble, but the emptiness of space, which is the one universal essence of mind, the vast awakenerhood, empty and awake, will never crumble away because ***it was never born.”*** - [Jack Kerouac](https://www.goodreads.com/quotes/7492) 
-
-* There once was a tiny drop of rainwater that fell from the great, rolling skies far above and into a vast run river down below. ..and became it. And yet did the raindrop retain its very identity. Yet how could this be? For it was, after all, no longer a raindrop. It was now the river. It became the awareness of the river by realizing upon entering that it and the river ***had never been apart to begin with.*** As a raindrop, however, it had lost sight of this truth and felt itself small and separated. Upon entry into the river, its identity did not become replaced by the river's - the river's identity did not obliterate the raindrops. Rather, the raindrop came to ultimately realize that its true identity had all along been much more grand, much more vast than it had ever prior given itself credit for. The raindrop is the river. The atom is the universe. - [Freeman Broiler](http://i.imgur.com/ETTzpzU.png)
 
 * "Of what arises from causes, the Buddha shows how it begins, and also how it ceases; thus does the Great Recluse instruct." - [Ashvajit](https://imgur.com/2xIWxAi)
 
