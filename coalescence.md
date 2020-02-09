@@ -256,7 +256,7 @@
 
 * "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
 
-* "Nature by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
+* "Mind by its very definition is a singulare tantum. I should say: the overall number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
 
 * [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
 
