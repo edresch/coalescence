@@ -140,7 +140,7 @@
 
 ***
 
-###Timelessness
+### Timelessness
 
 * *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
