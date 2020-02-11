@@ -94,7 +94,7 @@
 
 * [The All](https://w.wiki/DRw) is the Hermetic, pantheistic, pandeistic or panentheistic view of God, which is that everything that is, or at least that can be experienced, collectively makes up The All. 
 
-* [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the [first reality,](https://imgur.com/VLj0OER) or [principle.](https://i.imgur.com/UUTZrPU.jpg)
+* [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the first reality, or principle.
 
 * "All differences in this world are of degree, and not of kind, because oneness is the secret of everything." - [Swami Vivekananda](https://w.wiki/CwK)
 
