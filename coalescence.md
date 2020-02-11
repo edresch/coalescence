@@ -104,8 +104,6 @@
 
 * ***"All flows from one source englobing and safeguarding all qualities-*** sweetness with fragrance, wine- quality and the savours of everything that may be tasted, all colours seen, everything known to touch, all that ear may hear, all melodies, every rhythm. ***For all There is heaven;*** earth is heaven, and sea heaven; and animal and plant and man; all is the heavenly content of that heaven: and the Gods in it... ***The soul which has never strayed from this love waits for no reminding from the beauty of our world... for it sees that all is put together..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
-* "Here forms, here colors, here the character of every part of the universe are concentrated to a ***point***; and that point is *so marvelous a thing … Oh! marvelous, O stupendous Necessity* — by thy laws thou dost compel every effect to be the direct result of its cause, by the shortest path. *These are miracles..."* - [Leonardo da Vinci](https://w.wiki/CzH)
-
 *  "God is a circle whose center is everywhere, and its circumference nowhere." - [Empedocles](https://www.goodreads.com/quotes/109200)
 
 * "Form is emptiness, emptiness is form / Emptiness is not separate from form, form is not separate from emptiness / Whatever is form is emptiness, whatever is emptiness is form." - [The Heart Sutra](https://w.wiki/Cpa)
