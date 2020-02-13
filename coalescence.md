@@ -254,13 +254,14 @@
 
 * *"[Consciousness](https://imgur.com/JxX7RFX) is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
 
+* [Indefinite Monism](https://w.wiki/DRp) is a philosophical conception of reality that asserts that only Awareness is real. Awareness in this system is not equivalent to consciousness. Rather, Awareness is the venue for consciousness.
+
+
 * "Consciousness is not something that you have, it's something that you are." - [Eckhart Tolle](http://subtitlelist.com/en/Eckhart-Tolle--The-Never-Ending-Present-Moment-258)
 
 * "I believe that consciousness is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
 
 * "The fact that the universe is comprehensible is a miracle. The eternal mystery of the world is its comprehensibility." - [Albert Einstein](https://w.wiki/Czr)
-
-* [Indefinite Monism](https://w.wiki/DRp) is a philosophical conception of reality that asserts that only Awareness is real. Awareness in this system is not equivalent to consciousness. Rather, Awareness is the venue for consciousness.
 
 * "The one prevailing idea found in all ancient teaching is that the whole Kosmos has sprung from the divine thought. Everything in the Universe is conscious. Consciousness contains the cognizer, the thing cognized and the cognition, ***all three in itself and all three one."*** - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-03.htm)
 
