@@ -1,3 +1,11 @@
+* *"In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?"* - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
+
+* *"All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..."* - [Francis Thompson](https://imgur.com/2O2eE8z)
+
+* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
+
+***
+
 ### Energy
 
 * *"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration."* - [Nikola Tesla](https://imgur.com/Qv9p5IF)
@@ -51,8 +59,6 @@
 * "Reality is woven from strange, “holistic” threads that aren’t located precisely in space or time. Tug on a dangling loose end from this fabric of reality, and the whole cloth twitches, instantly, throughout all space and time." - [Dean Radin, Senior Scientist at IONS](https://www.goodreads.com/book/show/216543)
 
 * "The entangled objects somehow communicate instantaneously at a distance. Distance has no meaning. Light-years have no meaning. Space has no meaning. In a sense, the entangled objects are not even communicating. They are the same thing. ***All is one."*** - [Roger Ebert](https://w.wiki/DSo)
-
-* "All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..." - [Francis Thompson](https://imgur.com/2O2eE8z)
 
 ***
 
@@ -216,8 +222,6 @@
 
 * “The love that you withhold is the pain that you carry.” - [Alex Collier](https://youtu.be/oQZgAEA95s8?t=2010) 
 
-* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
-
 ***
 
 ### Selflessness
@@ -290,8 +294,6 @@
 * "The universe begins to look more like a great thought than like a great machine. Mind no longer appears as an accidental intruder into the realm of matter; we are beginning to suspect that we ought rather to hail it as a creator and governor of the realm of matter..." - [James Jeans, physicist/astronomer](https://w.wiki/Cx9)
 
 * "What was it like to wake up after having never gone to sleep? That was when you were born. You didn't come into this world, you came out of it. You are something the whole universe is doing in the same way that a wave is something that the whole ocean is doing." - [Alan Watts](https://genius.com/Alan-watts-the-real-you-annotated)
-
-* "In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die; Ever drifting down the stream- Lingering in the golden gleam-- Life, what is it but a dream?" - [Lewis Carroll](https://poets.org/poem/boat-beneath-sunny-sky)
 
 * "Body consciousness and the world are not different; they are identical." - [Sri Nisargadatta Maharaj](http://realizedone.com/post/the-final-talks-of-sri-nisargadatta-maharaj-talk/) 
 
