@@ -438,15 +438,15 @@
 
 * "He who knows the Spirit as Indestructible, Immortal, Unborn, Always-the-Same, how should he kill or cause to be killed?" - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
 
-* ***“Self is only an idea, a mortal idea.*** That which passes into everything is one thing. It's a dream already ended. There's nothing to be afraid of and nothing to be glad about. Mountains will crumble, but the emptiness of space, which is the one universal essence of mind, the vast awakenerhood, empty and awake, will never crumble away because ***it was never born.”*** - [Jack Kerouac](https://www.goodreads.com/quotes/7492) 
+* ***“Self is only an idea, a mortal idea.*** That which passes into everything is one thing. It's a dream already ended. There's nothing to be afraid of and nothing to be glad about. Mountains will crumble, but the emptiness of space, which is the one universal essence of mind, the vast awakenerhood, empty and awake, ***will never crumble away because it was never born.”*** - [Jack Kerouac](https://www.goodreads.com/quotes/7492) 
 
 * "Of what arises from causes, the Buddha shows how it begins, and also how it ceases; thus does the Great Recluse instruct." - [Ashvajit](https://imgur.com/2xIWxAi)
 
-* "When life and death are seen as essential to each other, as two aspects of one being, that is immortality. To see the end in the beginning and beginning in the end, is the intimation of eternity."- [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf)
-
 * "We may be about to rediscover that dying is not such a bad thing to do after all." - [Sir William Osler, physician](https://imgur.com/8dB7GnP)
 
-* "Men directing their weapons against each other- under doom of death yet neatly lined up to fight as in the pyrrhic sword-dances of their sport- this is enough to tell us that all human intentions are but play, ***that death is nothing terrible,*** that to die in a war or in a fight is but to taste a little beforehand what old age has in store, ***to go away earlier and come back the sooner."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+* "When life and death are seen as essential to each other, as two aspects of one being, that is immortality. To see the end in the beginning and beginning in the end, is the intimation of eternity."- [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf)
+
+* "Men directing their weapons against each other- under doom of death yet neatly lined up to fight as in the pyrrhic sword-dances of their sport- this is enough to tell us that all human intentions are but play, that death is nothing terrible, that to die in a war or in a fight is but to taste a little beforehand what old age has in store, to go away earlier and come back the sooner." - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * *"Life is a beautiful, magnificent thing, even to a jellyfish...* The trouble is you won't fight. You've given in, continually dwelling on sickness and death. But there's something just as inevitable as death, and that's life. ***Life, life, life.*** Think of all the power that's in the universe, moving the earth, growing the trees. That's the same power within you if you only have the courage and the will to use it." - [Charlie Chaplin](https://youtu.be/LEX0v-jOLHA)
 
