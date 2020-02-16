@@ -6,36 +6,6 @@
 
 ***
 
-### Energy
-
-* *"Nothing rests; everything moves; everything vibrates."* - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb11.htm)
-
-* "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration." - [Nikola Tesla](https://imgur.com/Qv9p5IF)
-
-* "When a piece of seemingly solid matter like a human hand is placed under a microscope, we can see that it is made up of molecules. As we move closer, we see [atoms,](https://youtu.be/yqLlgIaz1L0) the tiny shadowy balls dancing around their fixed locations. We focus on one of the atoms; its interior is lightly veiled by a cloud of [electrons.](https://youtu.be/OsZHRCuTIS8) We come closer, increasing the magnification. The shell dissolves and we look on the inside to find… ***nothing.*** Somewhere within that emptiness, we know is a nucleus. We scan the space, and there it is, a tiny dot. *At last,* we have discovered something hard and solid, a reference point. *But no!* as we move closer to the nucleus, it too begins to dissolve. ***It too is nothing more than an oscillating field, waves of rhythm.*** Inside the nucleus are other organized fields: protons, neutrons, even smaller “particles.” Each of these, upon our approach, ***also dissolve into pure rhythm."*** - [George Leonard, The Silent Pulse](https://embright.org/the-silent-pulse/)
-
-* “Matter is mostly ghostly empty space.” - [Sir Arthur Eddington, physicist](https://imgur.com/hyMq7T4)
-
-* “The nucleus of an atom takes up as much room in the atom as an ant on a football field.” - [Diane Powell, neuroscientist](https://doingfaith.com/always-there-is-life/the-esp-enigma.html)
-
-* “Atoms consist of particles and these particles are not made of any material stuff. When we observe them, we never see any substance; what we observe are dynamic patterns continually changing into one another - *a continuous dance of energy.”* - [Fritjof Capra, physicist](https://imgur.com/V5PlM1R)
-
-* "Solid matter, in the strict construction of the term, simply does not exist. The Universe is composed of interacting energy fields, some at rest and some in motion. It is, in and of itself, one gigantic [hologram](https://www.sciencedaily.com/releases/2017/01/170130083231.htm) of unbelievable complexity." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf) 
-
-* "I realized that I can no longer define the boundaries of my body. I can't define where I begin and where I end, because the atoms and the molecules of my arm blended with the atoms and molecules of the wall. I felt at one with all the energy that was, and it was beautiful there.” - [Dr. Jill Bolte Taylor, neuroscientist ](https://w.wiki/Cwh)
-
-* "Once you can accept the universe as matter expanding into nothing that is something, wearing stripes with plaid comes easy." - [Albert Einstein](https://www.goodreads.com/quotes/16479-once-you-can-accept-the-universe-as-matter-expanding-into) 
-
-* "Physical objects are not in space, but these objects are spatially extended. In this way, the concept of "empty space" loses its meaning." - [Albert Einstein](https://imgur.com/JrMMIj6) 
-
-* "Emptiness is not nothing, it's everything, everything at once." - [The Womb of Buddhas](https://www.goodreads.com/book/show/1056304)
-
-* "Form is emptiness, emptiness is form / Emptiness is not separate from form, form is not separate from emptiness / Whatever is form is emptiness, whatever is emptiness is form." - [The Heart Sutra](https://w.wiki/Cpa)
-
-* “She wasn't doing a thing that I could see, except standing there leaning on the balcony railing, holding the universe together.” - [J.D. Salinger](https://www.goodreads.com/quotes/244426-she-wasn-t-doing-a-thing-that-i-could-see-except)
-
-***
-
 ### Timelessness
 
 * *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
@@ -69,6 +39,36 @@
 * “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
 
 * Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
+
+***
+
+### Energy
+
+* *"Nothing rests; everything moves; everything vibrates."* - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb11.htm)
+
+* "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration." - [Nikola Tesla](https://imgur.com/Qv9p5IF)
+
+* "When a piece of seemingly solid matter like a human hand is placed under a microscope, we can see that it is made up of molecules. As we move closer, we see [atoms,](https://youtu.be/yqLlgIaz1L0) the tiny shadowy balls dancing around their fixed locations. We focus on one of the atoms; its interior is lightly veiled by a cloud of [electrons.](https://youtu.be/OsZHRCuTIS8) We come closer, increasing the magnification. The shell dissolves and we look on the inside to find… ***nothing.*** Somewhere within that emptiness, we know is a nucleus. We scan the space, and there it is, a tiny dot. *At last,* we have discovered something hard and solid, a reference point. *But no!* as we move closer to the nucleus, it too begins to dissolve. ***It too is nothing more than an oscillating field, waves of rhythm.*** Inside the nucleus are other organized fields: protons, neutrons, even smaller “particles.” Each of these, upon our approach, ***also dissolve into pure rhythm."*** - [George Leonard, The Silent Pulse](https://embright.org/the-silent-pulse/)
+
+* “Matter is mostly ghostly empty space.” - [Sir Arthur Eddington, physicist](https://imgur.com/hyMq7T4)
+
+* “The nucleus of an atom takes up as much room in the atom as an ant on a football field.” - [Diane Powell, neuroscientist](https://doingfaith.com/always-there-is-life/the-esp-enigma.html)
+
+* “Atoms consist of particles and these particles are not made of any material stuff. When we observe them, we never see any substance; what we observe are dynamic patterns continually changing into one another - *a continuous dance of energy.”* - [Fritjof Capra, physicist](https://imgur.com/V5PlM1R)
+
+* "Solid matter, in the strict construction of the term, simply does not exist. The Universe is composed of interacting energy fields, some at rest and some in motion. It is, in and of itself, one gigantic [hologram](https://www.sciencedaily.com/releases/2017/01/170130083231.htm) of unbelievable complexity." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf) 
+
+* "I realized that I can no longer define the boundaries of my body. I can't define where I begin and where I end, because the atoms and the molecules of my arm blended with the atoms and molecules of the wall. I felt at one with all the energy that was, and it was beautiful there.” - [Dr. Jill Bolte Taylor, neuroscientist ](https://w.wiki/Cwh)
+
+* "Once you can accept the universe as matter expanding into nothing that is something, wearing stripes with plaid comes easy." - [Albert Einstein](https://www.goodreads.com/quotes/16479-once-you-can-accept-the-universe-as-matter-expanding-into) 
+
+* "Physical objects are not in space, but these objects are spatially extended. In this way, the concept of "empty space" loses its meaning." - [Albert Einstein](https://imgur.com/JrMMIj6) 
+
+* "Emptiness is not nothing, it's everything, everything at once." - [The Womb of Buddhas](https://www.goodreads.com/book/show/1056304)
+
+* "Form is emptiness, emptiness is form / Emptiness is not separate from form, form is not separate from emptiness / Whatever is form is emptiness, whatever is emptiness is form." - [The Heart Sutra](https://w.wiki/Cpa)
+
+* “She wasn't doing a thing that I could see, except standing there leaning on the balcony railing, holding the universe together.” - [J.D. Salinger](https://www.goodreads.com/quotes/244426-she-wasn-t-doing-a-thing-that-i-could-see-except)
 
 ***
 
