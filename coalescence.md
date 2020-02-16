@@ -8,29 +8,67 @@
 
 ### Energy
 
-* *"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration."* - [Nikola Tesla](https://imgur.com/Qv9p5IF)
+* *"Nothing rests; everything moves; everything vibrates."* - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb11.htm)
 
-* "When a piece of seemingly solid matter like a human hand is placed under a microscope, we can see that it is made up of molecules. As we move closer, we see [atoms,](https://youtu.be/yqLlgIaz1L0) the tiny shadowy balls dancing around their fixed locations. We focus on one of the atoms; its interior is lightly veiled by a cloud of [electrons.](https://youtu.be/OsZHRCuTIS8) We come closer, increasing the magnification. The shell dissolves and we look on the inside to find… ***nothing.*** Somewhere within that emptiness, we know is a nucleus. We scan the space, and there it is, a tiny dot. *At last,* we have discovered something hard and solid, a reference point. *But no!* as we move closer to the nucleus, it too begins to dissolve. ***It too is nothing more than an oscillating field, waves of rhythm.*** Inside the nucleus are other organized fields: protons, neutrons, even smaller “particles.” Each of these, upon our approach, also dissolve into pure rhythm." - [George Leonard, The Silent Pulse](https://embright.org/the-silent-pulse/)
+* "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration." - [Nikola Tesla](https://imgur.com/Qv9p5IF)
+
+* "When a piece of seemingly solid matter like a human hand is placed under a microscope, we can see that it is made up of molecules. As we move closer, we see [atoms,](https://youtu.be/yqLlgIaz1L0) the tiny shadowy balls dancing around their fixed locations. We focus on one of the atoms; its interior is lightly veiled by a cloud of [electrons.](https://youtu.be/OsZHRCuTIS8) We come closer, increasing the magnification. The shell dissolves and we look on the inside to find… ***nothing.*** Somewhere within that emptiness, we know is a nucleus. We scan the space, and there it is, a tiny dot. *At last,* we have discovered something hard and solid, a reference point. *But no!* as we move closer to the nucleus, it too begins to dissolve. ***It too is nothing more than an oscillating field, waves of rhythm.*** Inside the nucleus are other organized fields: protons, neutrons, even smaller “particles.” Each of these, upon our approach, ***also dissolve into pure rhythm."*** - [George Leonard, The Silent Pulse](https://embright.org/the-silent-pulse/)
 
 * “Matter is mostly ghostly empty space.” - [Sir Arthur Eddington, physicist](https://imgur.com/hyMq7T4)
 
 * “The nucleus of an atom takes up as much room in the atom as an ant on a football field.” - [Diane Powell, neuroscientist](https://doingfaith.com/always-there-is-life/the-esp-enigma.html)
 
-* "Nothing rests; everything moves; everything vibrates." - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb11.htm)
+* “Atoms consist of particles and these particles are not made of any material stuff. When we observe them, we never see any substance; what we observe are dynamic patterns continually changing into one another - *a continuous dance of energy.”* - [Fritjof Capra, physicist](https://imgur.com/V5PlM1R)
 
 * "Solid matter, in the strict construction of the term, simply does not exist. The Universe is composed of interacting energy fields, some at rest and some in motion. It is, in and of itself, one gigantic [hologram](https://www.sciencedaily.com/releases/2017/01/170130083231.htm) of unbelievable complexity." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf) 
 
-* "Everything is made of atoms ... Everything that animals do, atoms do. There is nothing that living things do that cannot be understood from the point of view that they are made of atoms acting according to the laws of physics. - [Richard P. Feynman, Nobel Prize-winning theoretical physicist](https://todayinsci.com/F/Feynman_Richard/FeynmanRichard-Atom-Quotations.htm)
-
-* “Atoms consist of particles and these particles are not made of any material stuff. When we observe them, we never see any substance; what we observe are dynamic patterns continually changing into one another - a continuous dance of energy.” - [Fritjof Capra, physicist](https://imgur.com/V5PlM1R)
+* "I realized that I can no longer define the boundaries of my body. I can't define where I begin and where I end, because the atoms and the molecules of my arm blended with the atoms and molecules of the wall. I felt at one with all the energy that was, and it was beautiful there.” - [Dr. Jill Bolte Taylor, neuroscientist ](https://w.wiki/Cwh)
 
 * "Once you can accept the universe as matter expanding into nothing that is something, wearing stripes with plaid comes easy." - [Albert Einstein](https://www.goodreads.com/quotes/16479-once-you-can-accept-the-universe-as-matter-expanding-into) 
 
-* "It´s like a thought wave - invisible state OR quantum wave function spread over space and time. Not a wave of matter, but a wave in what? In a universal ocean - an ocean of pure potentiality - a unified field - superstring field that of which we are all made of." - [John Hagelin, Ph.D.](https://imgur.com/eULXDOI)
+* "Physical objects are not in space, but these objects are spatially extended. In this way, the concept of "empty space" loses its meaning." - [Albert Einstein](https://imgur.com/JrMMIj6) 
 
-* "I realized that I can no longer define the boundaries of my body. I can't define where I begin and where I end, because the atoms and the molecules of my arm blended with the atoms and molecules of the wall. I felt at one with all the energy that was, and it was beautiful there.” - [Dr. Jill Bolte Taylor, neuroscientist ](https://w.wiki/Cwh)
+* "Emptiness is not nothing, it's everything, everything at once." - [The Womb of Buddhas](https://www.goodreads.com/book/show/1056304)
+
+* "Form is emptiness, emptiness is form / Emptiness is not separate from form, form is not separate from emptiness / Whatever is form is emptiness, whatever is emptiness is form." - [The Heart Sutra](https://w.wiki/Cpa)
 
 * “She wasn't doing a thing that I could see, except standing there leaning on the balcony railing, holding the universe together.” - [J.D. Salinger](https://www.goodreads.com/quotes/244426-she-wasn-t-doing-a-thing-that-i-could-see-except)
+
+***
+
+### Timelessness
+
+* *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
+
+* According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
+
+* “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
+
+* "The past, present, and future all exist in the universal hologram simultaneously." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
+
+* “Past and future are myths: stories of the mind. You cannot escape the present; ever; not even theoretically." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/4L4nv51)
+
+* "Only the present day and present moment are real." - [Hasidic master Rabbi Nachman](https://w.wiki/CwJ)
+
+* "[The specious present](https://en.wikipedia.org/wiki/Specious_present) consists of three nonentities—the past, which does not exist, the future, which does not exist, and their conterminous, the present; the faculty from which it proceeds lies to us in the fiction of the specious present." - E. Robert Kelly
+
+* "The present is the future’s past, and is therefore what has already occurred on the way to a (now) pre-existing future fulfillment. . . . It is the future that is doing the creating of a past congruent with itself and it is the present that chooses itself to be congruently the past of a particular future.” - [Carl Buchheit, Ph.D.](https://imgur.com/vRy7hmo)
+
+* “Ultimately all the moments are really one, … therefore now is eternity…. Everything, including me, is dying every moment into eternity and being born again.” - [David Bohm, physicist](http://www.fdavidpeat.com/interviews/bohm.htm) 
+
+* "Imagine the Earth devoid of human life. Would it still have a past and a future? Could we still speak of time in any meaningful way? The question "What time is it?" or "What's the date today?" The oak tree or the eagle would be bemused by such a question. "What time?" they would ask. ***"Well, of course, it's now. The time is now. What else is there?"*** - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708.The_Power_of_Now)
+
+* ***"There is nothing peculiar in the present event to make it different from the past and future.*** For a moment the past was actual and the future will become so. What makes the present so different? A thing focused in the now is with me, for I am ever-present; it is my own reality that I impart to the present event. We consider memories, only when they come into the present. The forgotten is not counted until one is reminded -- which implies, ***bringing into the now."*** - [Sri Nisargadatta Maharaj, I Am That](http://www.prahlad.org/gallery/nisargadatta/I_Am_That.pdf)
+
+* “The experience of ‘there’ takes place here, just as the experience of the past or future takes place now. It is not possible to leave ‘here’ and visit ‘there.’ ‘There’ is always a concept, never an experience. Space is the distance between the point ‘here’ and the point ‘there,’ or between two points ‘there.’ However, only here is experienced. We are not moving through time and space. Time and space are, as it were, moving through us. I never go anywhere. ***I am always in the same place of ‘I am,’ the placeless place called here, the timeless time called now.”*** - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905-the-nature-of-consciousness)
+
+* "So far as we know, animals do not live in constant anxiety about sickness and death, as we do, ***because they live in [the present.](https://www.quora.com/How-do-insects-experience-time)*** There was never a time when the world began, because it goes round and round like a circle, and there is no place on a circle where it begins. There was no past. ***If the universe began in the past, when that happened it was now.*** But it is still now and the universe is still beginning now and it’s trailing off like the wake of a ship from now and as the wake of the ship fades out, so does the past. You can look back there to explain things but the explanation disappears. You will never find it there. Things are not explained by the past. They’re explained by what happens now." - [Alan Watts](https://www.youtube.com/watch?v=MVVk67UZMJ0)
+
+* “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
+
+* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
 
 ***
 
@@ -38,9 +76,9 @@
 
 * *"The infinitely far-away is not only near, but it is infinitely near."* - [Edward Conze, Buddhist linguist](https://imgur.com/jlvewBA)
 
-* "There is no empty space. When we go *down - down - down* - there is vibrations - stuff popping - invisible connections - ***entanglement."*** - [Fred Alan Wolf, theoretical physicist](https://imgur.com/r5NuS1w)
-
 * [Quantum entanglement](https://w.wiki/DEw) is a label for when particles cannot be described independently of the state of the others, even when separated by a large distance. The term was coined by Nobel Prize-winning physicist Erwin Schrödinger who stated - *“I would not call it one but rather the characteristic trait of quantum mechanics.”*
+
+* "There is no empty space. When we go *down - down - down* - there is vibrations - stuff popping - invisible connections - *entanglement."* - [Fred Alan Wolf, theoretical physicist](https://imgur.com/r5NuS1w)
 
 * "Entanglement can occur in large systems as well as warm ones—[*including living organisms.*](https://www.scientificamerican.com/article/schroedingers-bacterium-could-be-a-quantum-biology-milestone/) We can’t simply write quantum effects off as mere details. The entanglements are primary." - [Vlatko Vedral, Oxford physicist](https://youtu.be/8NrecEP5dtM)
 
@@ -78,13 +116,11 @@
 
 * "The definition of Kabbalah is receptiveness. Having *seamless unity* from self to the whole. Like a hologram, everything is continuously interconnected as ***one integral unity."*** - [Rabbi Simon Jacobson.](https://www.youtube.com/watch?v=-myHhrUTOIo) 
 
-* “That Universal Being, that contains all, and which is all, put into motion the Soul and the World, all that nature comprises. In the manifold  ***unity of universal life,*** the innumerable individualities distinguished by their variations, are, nevertheless, united in such a manner that the whole is one, and that ***everything proceeds from Unity.”*** - [Hermes, Asclepios](https://www.sacred-texts.com/eso/vow/vow09.htm) 
-
-* "The Soul contains all things but holds them all in an ***unextended unity.*** Differences unfold themselves, contraries are produced, but all is drawn into one organized system by the unity at the source. When you know that you have become this perfect work, when you are self-gathered in the purity of your being, ***nothing now remaining can shatter that inner unity...*** *From unity they have arisen, and towards unity, they strive.* ***Unity is thus identical with Goodness;*** for no being ever came into existence without possessing, from that very moment, ***an irresistible tendency towards unity.*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
 * "That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define the infinity as unity. ***This unity is all that there is."*** - [Ra](https://redd.it/6dbh63) / [Carla Rueckert, Law of One](https://www.llresearch.org/home.aspx) 
 
-* "Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+* “That Universal Being, that contains all, and which is all, put into motion the Soul and the World, all that nature comprises. In the manifold  ***unity of universal life,*** the innumerable individualities distinguished by their variations, are, nevertheless, united in such a manner that the whole is one, and that ***everything proceeds from Unity.”*** - [Hermes, Asclepios](https://www.sacred-texts.com/eso/vow/vow09.htm) 
+
+* "The Soul contains all things but holds them all in an ***unextended unity.*** Differences unfold themselves, contraries are produced, but all is drawn into one organized system by the unity at the source. When you know that you have become this perfect work, when you are self-gathered in the purity of your being, ***nothing now remaining can shatter that inner unity...*** *From unity they have arisen, and towards unity, they strive.* ***Unity is thus identical with Goodness;*** for no being ever came into existence without possessing, from that very moment, ***an irresistible tendency towards unity.*** Every separate existent is an adjusted part, ***holding its own characteristic and yet contributing by its own native tendency to the entire life-history of the Universe.*** All blending into a kosmos that must be alert throughout, every member living by its own life, nothing that can have existence failing to exist within it. The All could not have its huge life unless its every member had a life of its own. ***The secret lies in a variety within a unity. And on what has thus been compacted to unity, Beauty enthrones itself."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * “And all the books you've read have been read by other people. And all the songs you've loved have been heard by other people. And that girl that's pretty to you is pretty to other people. And that if you looked at these facts when you were happy, ***you would feel great because you are describing 'unity***.” - [Stephen Chbosky](https://www.goodreads.com/quotes/9625-and-all-the-books-you-ve-read-have-been-read-by)
 
@@ -98,37 +134,21 @@
 
 * [Taoism](https://w.wiki/EPJ) is a Chinese tradition that emphasizes living in harmony with the Tao or 'the Way.' It refers to the principle that is the source, [pattern](https://imgur.com/bIOsFV5) and substance of everything that exists.
 
-* [The All](https://w.wiki/DRw) is the Hermetic, pantheistic, pandeistic or panentheistic view of God, which is that everything that is, or at least that can be experienced, collectively makes up The All. 
+* "If there is any such thing at all as intelligence, and love, and beauty, well, you’ve found it in other people. It exists in us as human beings. If it is there, in us, it is symptomatic of the scheme of things, as the apples are symptomatic of the apple tree or the rose of the rose bush. ***Our existence on the Earth is a symptom of the solar system,*** and its balances, as much as the solar system, in turn, is a symptom of our galaxy, and our galaxy in its turn is a symptom of the whole company of galaxies." - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
 
-* [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the first reality, or principle.
-
-* "All differences in this world are of degree, and not of kind, because oneness is the secret of everything." - [Swami Vivekananda](https://w.wiki/CwK)
+* ***"All flows from one source englobing and safeguarding all qualities-*** sweetness with fragrance, wine- quality and the savours of everything that may be tasted, all colours seen, everything known to touch, all that ear may hear, all melodies, every rhythm. ***For all There is heaven;*** earth is heaven, and sea heaven; and animal and plant and man; all is the heavenly content of that heaven: and the Gods in it... ***The soul which has never strayed from this love waits for no reminding from the beauty of our world... for it sees that all is put together..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
 * "Ultimately, the entire universe has to be understood as a single undivided whole, in which analysis into separately and independently existent parts has no fundamental status." - [David Bohm, Physicist](https://imgur.com/v97AaL2)
 
 * "The whole of Gurmat wisdom has been summarized most beautifully into one single digit. Ik ***"Oneness"*** means everything in the whole entire creation is one thing that looks like many different things. - [Satpal Singh](https://youtu.be/pTRTtYUONgs)
 
-* ***"All flows from one source englobing and safeguarding all qualities-*** sweetness with fragrance, wine- quality and the savours of everything that may be tasted, all colours seen, everything known to touch, all that ear may hear, all melodies, every rhythm. ***For all There is heaven;*** earth is heaven, and sea heaven; and animal and plant and man; all is the heavenly content of that heaven: and the Gods in it... ***The soul which has never strayed from this love waits for no reminding from the beauty of our world... for it sees that all is put together..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+* "All differences in this world are of degree, and not of kind, because oneness is the secret of everything." - [Swami Vivekananda](https://w.wiki/CwK)
 
 *  "God is a circle whose center is everywhere, and its circumference nowhere." - [Empedocles](https://www.goodreads.com/quotes/109200)
-
-* "Form is emptiness, emptiness is form / Emptiness is not separate from form, form is not separate from emptiness / Whatever is form is emptiness, whatever is emptiness is form." - [The Heart Sutra](https://w.wiki/Cpa)
-
-* "Physical objects are not in space, but these objects are spatially extended. In this way, the concept of "empty space" loses its meaning." - [Albert Einstein](https://imgur.com/JrMMIj6) 
-
-* "Emptiness is not nothing, it's everything, everything at once." - [The Womb of Buddhas](https://www.goodreads.com/book/show/1056304)
 
 * "All nature, all formations, all creatures exist in and with one another, and they will be resolved again into their own roots." - [Gospel of Mary](http://www.earlychristianwritings.com/text/gospelmary.html)
 
 * ***"A vast similitude interlocks all*** … All souls, all living bodies though they be ever so different … All identities that have existed or may exist on this globe, or any other globe, All lives, and deaths, all of the past, present, future, This vast similitude spans them, and always has spanned, And shall forever span them and compactly hold and enclose them." - [Walt Whitman](https://www.poetryfoundation.org/poems/48856/on-the-beach-at-night-alone)
-
-* “Basically, everything is one. There is no way in which you draw a line between things. What we do is make these subdivisions, but they’re *not real.* I think maybe poets … have some understanding of this.” - [Barbara McClintock, Nobel Prize-Winning physiologist](https://imgur.com/yZWAwKE)
-
-* "Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
-
-* And I think [the sages] point to the same depth in you, and in me, and in all of us. I think they are plugged into the All…. ***Your identity is indeed the All,*** and you are no longer part of that stream, you are that stream, with the All unfolding not around you but in you. - [Ken Wilber, A Brief History of Everything](https://www.goodreads.com/book/show/40363634)
-
-* "If there is any such thing at all as intelligence, and love, and beauty, well, you’ve found it in other people. It exists in us as human beings. If it is there, in us, it is symptomatic of the scheme of things, as the apples are symptomatic of the apple tree or the rose of the rose bush. ***Our existence on the Earth is a symptom of the solar system,*** and its balances, as much as the solar system, in turn, is a symptom of our galaxy, and our galaxy in its turn is a symptom of the whole company of galaxies." - [Alan Watts](https://youtu.be/yYGHX8MgaX8)
 
 * "God is one in Hasidic teachings means not God is one, but that ***everything is part of the divine.*** That means we're all connected. It means we're all children of God. It means we can all be here for each other. It means we're responsible for the world." - [Rabbi Yosef Yitzchak](https://youtu.be/iKd84AVZkIw?t=384)
 
@@ -138,45 +158,9 @@
 
 * "The first peace, which is most important, is that which comes within the souls of men when they realize their relationship, ***their oneness, with the universe*** and all its Powers, and when they realize that at the center of the universe dwells Wakan-Tanka, and that this center is really everywhere, it is within each of us. This is the real Peace, and the others are but reflections of this. The second peace is that which is made between two individuals, and the third is that which is made between two nations. But above all you should understand that there can never be peace between nations until there is first known that true peace which, as I have often said, is within the souls of men." - [Hehaka Sapa, Wichasha Wakan](https://en.wikiquote.org/wiki/Black_Elk)
 
-* "Throw yourself flat on the ground, stretched out upon Mother Earth, with certain conviction that you are one with her and she with you..." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
-
 * "We often say that you can only think one thing at a time. The truth is that in looking at the world bit by bit we convince ourselves that it consists of separate things, and so give ourselves the problem of how these things are connected and how they cause and effect each other. The problem would never have arisen if we had been aware that it was ***just our way of looking at the world which had chopped it up into separate bits, things, events, causes, and effects.*** So-called opposites, such as light and darkness, are poles or aspects of the same thing. But we have no word for that thing, save such vague concepts as Existence, Being, God, or the Ultimate Ground of Being. We really feel that this world is indeed an assemblage of separate things that have somehow come together or, perhaps, fallen apart, and that we are each only one of them. In other words, we do not play the Game of Black-and-White. Instead, we play the game of Black-versus-White or, more usually, White-versus Black. Not realizing the inseparability of the positive and negative poles of the rhythm. Now you can begin to see the world as it is. ***And you don't see any past, and you don't see any future. You don't see a difference between yourself and the rest of it.*** - [Alan Watts, On the Taboo Against Knowing Who You Are](https://terebess.hu/english/AlanWatts-On%20The%20Taboo%20Against%20Knowing%20Who%20You%20Are.pdf)
 
-***
-
-### Timelessness
-
-* *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
-
-* According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
-
-* “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
-
-* "[The specious present](https://en.wikipedia.org/wiki/Specious_present) consists of three nonentities—the past, which does not exist, the future, which does not exist, and their conterminous, the present; the faculty from which it proceeds lies to us in the fiction of the specious present." - E. Robert Kelly
-
-* “Past and future are myths: stories of the mind. You cannot escape the present; ever; not even theoretically." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/4L4nv51)
-
-* "Only the present day and present moment are real." - [Hasidic master Rabbi Nachman](https://w.wiki/CwJ)
-
-* "The present is the future’s past, and is therefore what has already occurred on the way to a (now) pre-existing future fulfillment. . . . It is the future that is doing the creating of a past congruent with itself and it is the present that chooses itself to be congruently the past of a particular future.” - [Carl Buchheit, Ph.D.](https://imgur.com/vRy7hmo)
-
-* "Imagine the Earth devoid of human life. Would it still have a past and a future? Could we still speak of time in any meaningful way? The question "What time is it?" or "What's the date today?" The oak tree or the eagle would be bemused by such a question. "What time?" they would ask. ***"Well, of course, it's now. The time is now. What else is there?"*** - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708.The_Power_of_Now)
-
-* ***"There is nothing peculiar in the present event to make it different from the past and future.*** For a moment the past was actual and the future will become so. What makes the present so different? A thing focused in the now is with me, for I am ever-present; it is my own reality that I impart to the present event. We consider memories, only when they come into the present. The forgotten is not counted until one is reminded -- which implies, ***bringing into the now."*** - [Sri Nisargadatta Maharaj, I Am That](http://www.prahlad.org/gallery/nisargadatta/I_Am_That.pdf)
-
-* “The experience of ‘there’ takes place here, just as the experience of the past or future takes place now. It is not possible to leave ‘here’ and visit ‘there.’ ‘There’ is always a concept, never an experience. Space is the distance between the point ‘here’ and the point ‘there,’ or between two points ‘there.’ However, only here is experienced. We are not moving through time and space. Time and space are, as it were, moving through us. I never go anywhere. ***I am always in the same place of ‘I am,’ the placeless place called here, the timeless time called now.”*** - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905-the-nature-of-consciousness)
-
-* “Ultimately all the moments are really one, … therefore now is eternity…. Everything, including me, is dying every moment into eternity and being born again.” - [David Bohm, physicist](http://www.fdavidpeat.com/interviews/bohm.htm) 
-
-* "So far as we know, animals do not live in constant anxiety about sickness and death, as we do, ***because they live in [the present.](https://www.quora.com/How-do-insects-experience-time)*** There was never a time when the world began, because it goes round and round like a circle, and there is no place on a circle where it begins. There was no past. ***If the universe began in the past, when that happened it was now.*** But it is still now and the universe is still beginning now and it’s trailing off like the wake of a ship from now and as the wake of the ship fades out, so does the past. You can look back there to explain things but the explanation disappears. You will never find it there. Things are not explained by the past. They’re explained by what happens now." - [Alan Watts](https://www.youtube.com/watch?v=MVVk67UZMJ0)
-
-* "The past, present, and future all exist in the universal hologram simultaneously." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
-
-* “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
-
-* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
+* "Throw yourself flat on the ground, stretched out upon Mother Earth, with certain conviction that you are one with her and she with you..." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
 ***
 
@@ -187,6 +171,8 @@
 * “A human being is part of the whole, called by us ‘universe,’ a part limited in time and space. He experiences his thoughts and feelings as something separate from the rest—a kind of optical delusion of his consciousness." - [Albert Einstein](https://www.goodreads.com/quotes/369)
 
 * "The hours by the window had filled me with a direct certainty that time, space and causality, that the isolation, separateness and spatio-temporal limitations of the self were merely optical illusions…" - [Arthur Koestler, Sonning Prize Winner](https://imgur.com/GfwLqgz)
+
+* “Basically, everything is one. There is no way in which you draw a line between things. What we do is make these subdivisions, but they’re *not real.* I think maybe poets … have some understanding of this.” - [Barbara McClintock, Nobel Prize-Winning physiologist](https://imgur.com/yZWAwKE)
 
 * German philosopher [Arthur Schopenhauer](https://w.wiki/DEx) believed that humans risk their lives for another because the rescuer realizes that he or she and the individual in need ***are one.*** He stated - *“[Universal compassion](https://news.uchicago.edu/story/helping-your-fellow-rat-rodents-show-empathy-driven-behavior) is the only guarantee of morality. My own true inner being actually exists in every living creature as truly and immediately as known to my consciousness only in myself. This realization is the ground of compassion upon which all true, that is to say unselfish, virtue rests...”*
 
@@ -260,7 +246,6 @@
 
 * [Indefinite Monism](https://w.wiki/DRp) is a philosophical conception of reality that asserts that only Awareness is real. Awareness in this system is not equivalent to consciousness. Rather, Awareness is the venue for consciousness.
 
-
 * "Consciousness is not something that you have, it's something that you are." - [Eckhart Tolle](http://subtitlelist.com/en/Eckhart-Tolle--The-Never-Ending-Present-Moment-258)
 
 * "I believe that consciousness is, essentially, the way information feels when being processed." – [Max Tegmark, physicist/cosmologist](https://www.edge.org/response-detail/10655)
@@ -313,7 +298,11 @@
 
 * "When the mind becomes very silent, you can clearly see that all that exists in the world are brief moments of consciousness arising together with the six sense objects. If you can make the mind very focused you see that the whole world breaks down into these small events of sight and the knowing, sound and the knowing, thought and the knowing. ***No longer are these houses, cars, bodies or even oneself. All you see are particles of consciousness as experience.*** You will see differently that consciousness is like waves, like a sea, an ocean. ***Now it is not particles but instead every sight and every sound is contained in this ocean of consciousness.*** From this perspective, there is no sense of particles at all." - [Jack Kornfield](https://imgur.com/sYAw0zf)
 
+* "It´s like a thought wave - invisible state OR quantum wave function spread over space and time. Not a wave of matter, but a wave in what? In a universal ocean - an ocean of pure potentiality - a unified field - superstring field that of which we are all made of." - [John Hagelin, Ph.D.](https://imgur.com/eULXDOI)
+
 * *"My world is myself. I am at home.* ***You are the pure awareness that illuminates consciousness and its infinite content. Awareness is primordial;*** it is the original state, beginningless, endless, uncaused, unsupported, without parts, without change. There can be no consciousness without awareness, but there can be awareness without consciousness... ***Awareness is the common matrix of every experience."*** - [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf) 
+
+* And I think [the sages] point to the same depth in you, and in me, and in all of us. I think they are plugged into the All…. ***Your identity is indeed the All,*** and you are no longer part of that stream, you are that stream, with the All unfolding not around you but in you. - [Ken Wilber, A Brief History of Everything](https://www.goodreads.com/book/show/40363634)
 
 * "Imagine that all of reality is a stream of water, where water represents consciousness. Now imagine that within the stream, whirlpools form. While they may *look different* from other parts of the stream, the whirlpools are made of nothing more than water. ***To say that the brain generates mind is as absurd as to say that a whirlpool generates water.*** - [Bernardo Kastrup, Ph.D.](https://imgur.com/jca3hDu)
 
@@ -371,7 +360,9 @@
 
 * "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
 
-* "Mind by its very nature is a singulare tantum. I should say: the over-all number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
+* [The All](https://w.wiki/DRw) is the Hermetic, pantheistic, pandeistic or panentheistic view of God, which is that everything that is, or at least that can be experienced, collectively makes up The All. 
+
+* [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the first reality, or principle.
 
 * [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
 
@@ -379,7 +370,7 @@
 
 * [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
 
-* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
+* "Mind by its very nature is a singulare tantum. I should say: the over-all number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
 
 * "We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
@@ -392,6 +383,8 @@
 * "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
 
 * “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
+
+* "Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
 * "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
 
@@ -418,6 +411,8 @@
 * "All truth is *eternal.* Truth is nobody’s property; no race, no individual can lay any exclusive claim to it. Truth is the nature of all souls. - [Swami Vivekananda](https://w.wiki/CwK) 
 
 * ***"Eternity means Ever-Being. Eternity is an unchanging unity.*** Neither coming to be nor passing away. Absolutely One, it has never known measure and stands outside of number... And having no constituent parts it accepts no pattern, forms no shape. Changelessly motionless and ever holding the Universal content in actual presence. All its content is in immediate concentration as at one point; nothing in it ever knows development: all remains identical within itself, ***knowing nothing of change.*** That which neither has been nor will be, but simply possesses being; that which enjoys stable existence as neither in process of change nor having ever changed- that is Eternity. ***Being itself could not make such an opposite into Being..."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* [Kashmir Shaivism](https://w.wiki/Cwz) refers to a nondualist tradition of Śaiva-Śakta Tantra which originated sometime after 850 CE. The goal is to recognize oneself as Shiva who is the entirety of the universe.
 
 * The philosophy of [Sankara](https://w.wiki/CmD) states [Brahman](https://w.wiki/CmE) (Ultimate Reality) alone is real; the world is non-real, and the [The Ātman](https://w.wiki/CmF) (Self) is essentially not-different from Brahman. 
 
