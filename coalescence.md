@@ -212,9 +212,7 @@
 
 ### Selflessness
 
-* *“Events happen, deeds are done, but there is no individual doer thereof.”* - Buddha
-
-* “Trying to define yourself is like trying to bite your own teeth.” - [Alan Watts](https://bit.ly/2MTWUNa) 
+* *“Trying to define yourself is like trying to bite your own teeth.”* - [Alan Watts](https://bit.ly/2MTWUNa) 
 
 * "If I am I because I am I, and you are you because you are you, then I am I and you are you. But if I am I because you are you and you are you because I am I, then I am not I and you are not you!" - [Menachem Mendel of Kotzk](https://w.wiki/F47)
 
