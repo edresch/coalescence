@@ -386,7 +386,7 @@
 
 * "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
 
-* “We live in succession, [in division](https://imgur.com/niei5CH), in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
+* “We live in succession, in division, in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
 
 * "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [ H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
 
