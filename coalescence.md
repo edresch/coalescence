@@ -6,42 +6,6 @@
 
 ***
 
-### Timelessness
-
-* *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
-
-* According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
-
-* “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
-
-* "The past, present, and future all exist in the universal hologram simultaneously." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
-
-* “Past and future are myths: stories of the mind. You cannot escape the present; ever; not even theoretically." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/4L4nv51)
-
-* "Only the present day and present moment are real." - [Hasidic master Rabbi Nachman](https://w.wiki/CwJ)
-
-* "[The specious present](https://en.wikipedia.org/wiki/Specious_present) consists of three nonentities—the past, which does not exist, the future, which does not exist, and their conterminous, the present; the faculty from which it proceeds lies to us in the fiction of the specious present." - E. Robert Kelly
-
-* "The present is the future’s past, and is therefore what has already occurred on the way to a (now) pre-existing future fulfillment. . . . It is the future that is doing the creating of a past congruent with itself and it is the present that chooses itself to be congruently the past of a particular future.” - [Carl Buchheit, Ph.D.](https://imgur.com/vRy7hmo)
-
-* “Ultimately all the moments are really one, … therefore now is eternity…. Everything, including me, is dying every moment into eternity and being born again.” - [David Bohm, physicist](http://www.fdavidpeat.com/interviews/bohm.htm) 
-
-* "Imagine the Earth devoid of human life. Would it still have a past and a future? Could we still speak of time in any meaningful way? The question "What time is it?" or "What's the date today?" The oak tree or the eagle would be bemused by such a question. "What time?" they would ask. ***"Well, of course, it's now. The time is now. What else is there?"*** - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708.The_Power_of_Now)
-
-* ***"There is nothing peculiar in the present event to make it different from the past and future.*** For a moment the past was actual and the future will become so. What makes the present so different? A thing focused in the now is with me, for I am ever-present; it is my own reality that I impart to the present event. We consider memories, only when they come into the present. The forgotten is not counted until one is reminded -- which implies, ***bringing into the now."*** - [Sri Nisargadatta Maharaj, I Am That](http://www.prahlad.org/gallery/nisargadatta/I_Am_That.pdf)
-
-* “The experience of ‘there’ takes place here, just as the experience of the past or future takes place now. It is not possible to leave ‘here’ and visit ‘there.’ ‘There’ is always a concept, never an experience. Space is the distance between the point ‘here’ and the point ‘there,’ or between two points ‘there.’ However, only here is experienced. We are not moving through time and space. Time and space are, as it were, moving through us. I never go anywhere. ***I am always in the same place of ‘I am,’ the placeless place called here, the timeless time called now.”*** - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905-the-nature-of-consciousness)
-
-* "So far as we know, animals do not live in constant anxiety about sickness and death, as we do, ***because they live in [the present.](https://www.quora.com/How-do-insects-experience-time)*** There was never a time when the world began, because it goes round and round like a circle, and there is no place on a circle where it begins. There was no past. ***If the universe began in the past, when that happened it was now.*** But it is still now and the universe is still beginning now and it’s trailing off like the wake of a ship from now and as the wake of the ship fades out, so does the past. You can look back there to explain things but the explanation disappears. You will never find it there. Things are not explained by the past. They’re explained by what happens now." - [Alan Watts](https://www.youtube.com/watch?v=MVVk67UZMJ0)
-
-* “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
-
-* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
-
-***
-
 ### Energy
 
 * *"Nothing rests; everything moves; everything vibrates."* - [The Kybalion](https://www.sacred-texts.com/eso/kyb/kyb11.htm)
@@ -238,6 +202,52 @@
 
 ***
 
+### Oneness
+
+* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
+
+* [The All](https://w.wiki/DRw) is the Hermetic, pantheistic, pandeistic or panentheistic view of God, which is that everything that is, or at least that can be experienced, collectively makes up The All. 
+
+* "Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
+
+* [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the first reality, or principle.
+
+* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
+
+* “We live in succession, in division, in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
+
+* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
+
+* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
+
+* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
+
+* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
+
+* "Mind by its very nature is a singulare tantum. I should say: the over-all number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
+
+* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
+
+* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
+
+* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
+
+* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
+
+* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
+
+* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle.* We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
+
+* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
+
+* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
+
+* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
+
+* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
+
+***
+
 ### Consciousness
 
 * *"[Consciousness](https://imgur.com/JxX7RFX) is the ear of the ear, the thought of the thought, the speech of the speech, the breath of the breath and the eye of the eye…"* - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/) 
@@ -354,49 +364,39 @@
 
 ***
 
-### Oneness
+### Timelessness
 
-* "*This is It / and I am It / and You are It / and so is That / and He is It / and She is It / and It is It / and That is That.*" - [James Broughton](https://imgur.com/heIkNkk)
+* *"If time is, admittedly, endless, how can number apply to it?"* - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
 
-* [The All](https://w.wiki/DRw) is the Hermetic, pantheistic, pandeistic or panentheistic view of God, which is that everything that is, or at least that can be experienced, collectively makes up The All. 
+* [Philosophical presentism](https://en.wikipedia.org/wiki/Philosophical_presentism) is the view that neither the future nor the past exists.
 
-* "Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
+* According to Einstein's [Relativity of simultaneity,](https://en.wikipedia.org/wiki/Relativity_of_simultaneity) simultaneity is not an absolute relation between events; what is simultaneous in one frame of reference will not necessarily be simultaneous in another. As Einstein's theory of relativity explains, if you were to travel at the speed of light then strange things would happen to space and time, and you would experience yourself to be in all places and times at once. - [Example 1,](https://upload.wikimedia.org/wikipedia/commons/7/78/Relativity_of_Simultaneity_Animation.gif) [Example 2.](https://upload.wikimedia.org/wikipedia/commons/7/72/Traincar_Relativity2.svg) 
 
-* [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the first reality, or principle.
+* “The distinction between past and present and future is only a stubbornly persistent illusion.” - [Albert Einstein](https://imgur.com/F8pPVvb)
 
-* [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
+* "The past, present, and future all exist in the universal hologram simultaneously." - [De-classified CIA document](https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00788R001700210016-5.pdf)
 
-* “We live in succession, in division, in parts, in particles. Meantime within man is the soul of the whole; the wise silence; the universal beauty, to which every part and particle is equally related, ***the eternal ONE.*** - [Ralph Waldo Emerson, The Over-Soul](https://emersoncentral.com/texts/essays-first-series/the-over-soul/)
+* “Past and future are myths: stories of the mind. You cannot escape the present; ever; not even theoretically." - [Bernardo Kastrup, Ph.D., philosopher](https://imgur.com/4L4nv51)
 
-* [Open individualism](https://w.wiki/DRt) is the view in the philosophy of personal identity, according to which there exists only ***one*** numerically identical subject, who is everyone at all times. 
+* "Only the present day and present moment are real." - [Hasidic master Rabbi Nachman](https://w.wiki/CwJ)
 
-* [Monopsychism](https://w.wiki/DRu) is the belief that all humans share the same eternal consciousness, soul, mind, and intellect.
+* "[The specious present](https://en.wikipedia.org/wiki/Specious_present) consists of three nonentities—the past, which does not exist, the future, which does not exist, and their conterminous, the present; the faculty from which it proceeds lies to us in the fiction of the specious present." - E. Robert Kelly
 
-* “Consciousness is a singular of which the plural is unknown; … there is only one thing and that, what seems to be a plurality, is merely a series of different aspects of this one thing...” - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/Czt)
+* "The present is the future’s past, and is therefore what has already occurred on the way to a (now) pre-existing future fulfillment. . . . It is the future that is doing the creating of a past congruent with itself and it is the present that chooses itself to be congruently the past of a particular future.” - [Carl Buchheit, Ph.D.](https://imgur.com/vRy7hmo)
 
-* “Deep down the consciousness of mankind is ***one.*** This is a virtual certainty because even in the vacuum matter is one; and if we don't see this, it's because we are blinding ourselves to it. ” - [David Bohm, theoretical physicist](https://w.wiki/CmH)
+* “Ultimately all the moments are really one, … therefore now is eternity…. Everything, including me, is dying every moment into eternity and being born again.” - [David Bohm, physicist](http://www.fdavidpeat.com/interviews/bohm.htm) 
 
-* "Mind by its very nature is a singulare tantum. I should say: the over-all number of minds is just one." - [Erwin Schrödinger, Nobel Prize-winning physicist](https://i.imgur.com/ChHEYce.png)
+* "Imagine the Earth devoid of human life. Would it still have a past and a future? Could we still speak of time in any meaningful way? The question "What time is it?" or "What's the date today?" The oak tree or the eagle would be bemused by such a question. "What time?" they would ask. ***"Well, of course, it's now. The time is now. What else is there?"*** - [Eckhart Tolle, Power of the Now](https://www.goodreads.com/book/show/6708.The_Power_of_Now)
 
-* "There is but one indivisible and absolute Omniscience and Intelligence in the Universe, and this thrills throughout every atom and infinitesimal point of the whole..." - [H. P. Blavatsky, The Secret Doctrine](https://www.theosociety.org/pasadena/sd/sd1-1-13.htm)
+* ***"There is nothing peculiar in the present event to make it different from the past and future.*** For a moment the past was actual and the future will become so. What makes the present so different? A thing focused in the now is with me, for I am ever-present; it is my own reality that I impart to the present event. We consider memories, only when they come into the present. The forgotten is not counted until one is reminded -- which implies, ***bringing into the now."*** - [Sri Nisargadatta Maharaj, I Am That](http://www.prahlad.org/gallery/nisargadatta/I_Am_That.pdf)
 
-* "There is only One, the Self, who appears to be many to deluded vision, like the moon appearing more than one to eyes affected by amaurosis." - [Upadesa Sahasri](https://www.shastras.com/adi-sankara/upadesa-sahasri/)
+* “The experience of ‘there’ takes place here, just as the experience of the past or future takes place now. It is not possible to leave ‘here’ and visit ‘there.’ ‘There’ is always a concept, never an experience. Space is the distance between the point ‘here’ and the point ‘there,’ or between two points ‘there.’ However, only here is experienced. We are not moving through time and space. Time and space are, as it were, moving through us. I never go anywhere. ***I am always in the same place of ‘I am,’ the placeless place called here, the timeless time called now.”*** - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905-the-nature-of-consciousness)
 
-* "This Absolute Oneness alone is Real since there is nothing other than the Self. Truly, there is no other independent entity in the state of full realization of the supreme Truth." - [Vivekachudamani](https://www.arshabodha.org/adiShankara/Vivekachudamani_eBook.pdf)  
+* "So far as we know, animals do not live in constant anxiety about sickness and death, as we do, ***because they live in [the present.](https://www.quora.com/How-do-insects-experience-time)*** There was never a time when the world began, because it goes round and round like a circle, and there is no place on a circle where it begins. There was no past. ***If the universe began in the past, when that happened it was now.*** But it is still now and the universe is still beginning now and it’s trailing off like the wake of a ship from now and as the wake of the ship fades out, so does the past. You can look back there to explain things but the explanation disappears. You will never find it there. Things are not explained by the past. They’re explained by what happens now." - [Alan Watts](https://www.youtube.com/watch?v=MVVk67UZMJ0)
 
-* “Each of us is, as such, the same person, apparently diversified and separated through the kaleidoscope of thought and perception.…***We are literally each other.*** Each of us is the outer face, or the objectification, of the only mind there is, eternal, infinite consciousness. We are all mirrors of the same consciousness.” - [Rupert Spira, The Nature of Consciousness](https://www.goodreads.com/book/show/31142905)
+* “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
 
-* "Today a young man on acid realised we are all just energy condensed to a *slooooow* vibration. We are all one consciousness, experiencing itself subjectively. There is no such thing as death, life is only a dream and we're the imagination of ourselves. Here's Tom with the weather." - [Bill Hicks](https://www.goodreads.com/quotes/8870-today-a-young-man-on-acid-realized-that-all-matter)
-
-* ***"Present entire at every point of the body and the universe, an identity numerically one, undivided entire, omnipresent.*** Seeking nothing, possessing nothing, lacking nothing, the One is perfect and has overflowed, and its exuberance has produced the new: this product has turned again to its begetter and been filled and has become its contemplator and so an *Intellectual-Principle.* We may think of the One as a light before the light, an eternal irradiation resting upon the Intellectual Realm; this, not identical with its source, is yet not severed from it nor of so remote a nature as to be less than Real-Being; it is no blind thing, but is seeing and knowing, ***the primal knower."*** - [Plotinus, Enneads, 204-270 AD.](https://www.sacred-texts.com/cla/plotenn/index.htm) 
-
-* "He who sees Me in everything and everything in Me, him shall I never forsake, nor shall he lose Me." - [The Bhagavad Gita](https://www.holybooks.com/wp-content/uploads/The-Bhagavad-Gita-Translation-by-Shri-Purohit-Swami.pdf)
-
-* “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
-
-* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
-
-* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
+* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
 
 ***
 
