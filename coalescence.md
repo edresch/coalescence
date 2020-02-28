@@ -396,8 +396,6 @@
 
 * “[The SRI experiments](https://w.wiki/CtW) showed that the viewer is [***not bound by present time.***](https://archive.org/details/CIA-RDP96-00789R002100220001-4/page/n27) Our psychic viewers were able to find a [downed Russian bomber in Africa,](http://www.lookingglassnews.org/viewstory.php?storyid=5187) to describe the health of American hostages in Iran and to locate a kidnapped American general in Italy. We also described Soviet weapons factories in Siberia and a Chinese atomic-bomb test three days before it occurred..." - [Russell Targ, physicist](https://imgur.com/a/dJD9Lj3) 
 
-* Both "Simul" (simultaneously / simulation) and "Singul" (singular / singularity) are derived from [Proto-Indo-European sem-](https://en.wiktionary.org/wiki/Reconstruction:Proto-Indo-European/sem-) meaning (**“together, one.”**)
-
 ***
 
 ### Changelessness 
