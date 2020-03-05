@@ -334,7 +334,7 @@
 
 * *"The brain breathes mind like the lungs breathe air."* - [Huston Smith, philosopher](https://w.wiki/CqV)
 
-* “I have been and still am a seeker, but I no longer seek in stars and books; I have begun to listen to the teachings my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
+* “I have been and still am a seeker, but I have ceased to question stars and books; I have begun to listen to the teaching my blood whispers to me." - [Hermann Hesse](https://www.goodreads.com/quotes/28811)
 
 * [Collective Unconscious](https://w.wiki/Doc) is a term that refers to structures of the unconscious mind which are shared among beings of the same species. Coined by Carl Jung who stated - *"In addition to our immediate consciousness there exists a second psychic system of a collective, universal, and impersonal nature which is identical in all individuals. This collective unconscious does not develop individually but is inherited."*
 
