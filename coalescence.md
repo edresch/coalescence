@@ -240,10 +240,6 @@
 
 * “I honor the place in you that is the same in me. I honor in you where the entire Universe resides. I honor the place in you of love, of light, of peace and of truth. I honor the place in you, that is the same in me. ***There is but one."*** - [Namaste, ​Ancient Sanskrit](https://imgur.com/iKmsG9Y)
 
-* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI) - (Video)
-
-* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU) - (Video)
-
 ***
 
 ### Consciousness
@@ -447,5 +443,9 @@
 * *"And now, I endeavor that my divine part may return to that divine nature which flourishes throughout the universe."* - [Plotinus' final words, 270 AD.](https://imgur.com/2W225ao)
 
 ***
+
+* [The Egg, Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI)
+
+* [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU)
 
 * [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
