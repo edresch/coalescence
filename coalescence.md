@@ -445,3 +445,7 @@
 * *"Life is a beautiful, magnificent thing, even to a jellyfish...* The trouble is you won't fight. You've given in, continually dwelling on sickness and death. But there's something just as inevitable as death, and that's life. ***Life, life, life.*** Think of all the power that's in the universe, moving the earth, growing the trees. That's the same power within you if you only have the courage and the will to use it." - [Charlie Chaplin](https://youtu.be/LEX0v-jOLHA)
 
 * *"And now, I endeavor that my divine part may return to that divine nature which flourishes throughout the universe."* - [Plotinus' final words, 270 AD.](https://imgur.com/2W225ao)
+
+***
+
+* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
