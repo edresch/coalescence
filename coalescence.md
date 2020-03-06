@@ -2,8 +2,6 @@
 
 * *"All things by immortal power, Near or far, Hiddenly / To each other linked are, That thou canst not stir a flower / Without troubling of a star..."* - [Francis Thompson](https://imgur.com/2O2eE8z)
 
-* [*The Giving Tree*](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
-
 ***
 
 ### Energy
