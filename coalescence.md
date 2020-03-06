@@ -318,7 +318,7 @@
 
 * “As a neurosurgeon, I was taught that the brain creates consciousness…The truth is that the more we come to understand the physical brain, the more we realize it does not create consciousness at all. ***We are conscious in spite of our brain.*** The brain serves more as a reducing valve or filter, limiting pre-existing consciousness..." - [Eben Alexander, neurosurgeon](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6170087/)
 
-* "The idea that a consciousness can exist and make memories independent of the brain … is a startling finding." - Dr. Allan Hamilton, Harvard Ph.D. (Commenting on a patient’s detailed memories that occurred when they had *[no brain activity.](https://youtu.be/rlfYnuNR3lI?t=111)*)
+* "The idea that a consciousness can exist and make memories independent of the brain … is a startling finding." - Dr. Allan Hamilton, Harvard Ph.D. (Commenting on a patient’s detailed memories that occurred when they had [no brain activity.](https://youtu.be/rlfYnuNR3lI?t=111))
 
 * Neuropsychologist Karl Lashley wanted to understand where memories are stored in the brain. To do this, he trained rats to do tasks for food. Once they learned the task, he systematically destroyed one part of their brain at a time. Miraculously, ***[the rats could still perform the tasks](https://i.imgur.com/U5Ophyh.png)*** regardless of which part of the brain was destroyed. This test was also successful with both [*monkeys*](https://i.imgur.com/KS61wjr.png), [*salamanders*](http://www.instinct.org/texts/shufflebrain/shufflebrain-book05.html) and has been naturally [*observed in humans.*](https://imgur.com/MRLQFEL)
 
