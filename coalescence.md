@@ -208,6 +208,8 @@
 
 * "Inconceivable as it seems to ordinary reason, you — and all other conscious beings as such — are all in all." - [Erwin Schrödinger, Nobel Prize-Winning physicist](https://w.wiki/CmV)
 
+* And I think [the sages] point to the same depth in you, and in me, and in all of us. I think they are plugged into the All…. ***Your identity is indeed the All,*** and you are no longer part of that stream, you are that stream, with the All unfolding not around you but in you. - [Ken Wilber, A Brief History of Everything](https://www.goodreads.com/book/show/40363634)
+
 * [Emanationism](https://w.wiki/Cx5) is an idea in the cosmology or cosmogony of certain religious or philosophical systems. Emanation meaning "to flow from" is the mode by which all things are derived from the first reality, or principle.
 
 * [Monism](https://w.wiki/Cwm) attributes oneness or singleness to existence. Priority monism states that all existing things go back to a source that is distinct from them; e.g., in Neoplatonism, everything is derived from ***[The One.](https://w.wiki/Cwn)***
@@ -303,8 +305,6 @@
 * "It´s like a thought wave - invisible state OR quantum wave function spread over space and time. Not a wave of matter, but a wave in what? In a universal ocean - an ocean of pure potentiality - a unified field - superstring field that of which we are all made of." - [John Hagelin, Ph.D.](https://imgur.com/eULXDOI)
 
 * *"My world is myself. I am at home.* ***You are the pure awareness that illuminates consciousness and its infinite content. Awareness is primordial;*** it is the original state, beginningless, endless, uncaused, unsupported, without parts, without change. There can be no consciousness without awareness, but there can be awareness without consciousness... ***Awareness is the common matrix of every experience."*** - [Sri Nisargadatta Mahara, I Am That](https://holybooks-lichtenbergpress.netdna-ssl.com/wp-content/uploads/I-Am-That-by-Sri-Nisargadatta-Maharaj.pdf) 
-
-* And I think [the sages] point to the same depth in you, and in me, and in all of us. I think they are plugged into the All…. ***Your identity is indeed the All,*** and you are no longer part of that stream, you are that stream, with the All unfolding not around you but in you. - [Ken Wilber, A Brief History of Everything](https://www.goodreads.com/book/show/40363634)
 
 * "Imagine that all of reality is a stream of water, where water represents consciousness. Now imagine that within the stream, whirlpools form. While they may *look different* from other parts of the stream, the whirlpools are made of nothing more than water. ***To say that the brain generates mind is as absurd as to say that a whirlpool generates water.*** - [Bernardo Kastrup, Ph.D.](https://imgur.com/jca3hDu)
 
