@@ -447,5 +447,3 @@
 * [The Egg by Andy Weir](https://www.youtube.com/watch?v=h6fcK_fRYaI)
 
 * [The Game of Hide & Seek, Alan Watts](https://www.youtube.com/watch?v=eiNhnrJXxVU)
-
-* [The Giving Tree](https://imgur.com/a/X5grhUF) [by Shel Silverstein](https://youtu.be/1TZCP6OqRlE?t=14)
