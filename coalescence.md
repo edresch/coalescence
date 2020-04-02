@@ -130,7 +130,7 @@
 
 * *"Devoid of space / Is the mind of grace."* - [Jack Kerouac](https://imgur.com/PuClHTX)
 
-* “A human being is part of the whole, called by us ‘universe,’ a part limited in time and space. He experiences his thoughts and feelings as something separate from the rest—a kind of optical delusion of his consciousness." - [Albert Einstein](https://www.goodreads.com/quotes/369)
+* “A human being is a part of the whole, called by us "Universe," a part limited in time and space. He experiences himself, his thoughts and feelings as something separate from the rest—a kind of optical delusion of his consciousness. The striving to free oneself from this delusion is the one issue of true religion. Not to nourish it but to try to overcome it is the way to reach the attainable measure of peace of mind." - [Albert Einstein](https://imgur.com/MnblXVQ)
 
 * "The hours by the window had filled me with a direct certainty that time, space and causality, that the isolation, separateness and spatio-temporal limitations of the self were merely optical illusions…" - [Arthur Koestler, Sonning Prize Winner](https://imgur.com/GfwLqgz)
 
